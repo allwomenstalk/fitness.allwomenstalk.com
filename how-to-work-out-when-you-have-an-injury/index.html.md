@@ -3,7 +3,7 @@ title: "How to Work out when You Have an Injury ..."
 description: "Talk to Your Doctor; Rule out Any and All Possibilities; Avoid the Area if That’s What the Doctor Advises; Look to YouTube Tutorials; Work with Your Instructors on Modifications; More ..."
 url: "https://fitness.allwomenstalk.com/how-to-work-out-when-you-have-an-injury/"
 category: "fitness"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # How to Work out when You Have an Injury ...
@@ -56,16 +56,16 @@ Have you ever worked out while sustaining an injury? How did you deal with it? L
 
 ## Related Posts
 
-- [7 Fitness Resolutions That Are Actually Doable for...](https://fitness.allwomenstalk.com/fitness-resolutions-that-are-actually-doable-for-any-age/)
-- [eco fitness gym](https://fitness.allwomenstalk.com/this-is-how-to-have-an-eco-friendly-workout/)
-- [meerkat full body](https://fitness.allwomenstalk.com/why-you-should-all-work-out-with-me-on-meerkat/)
-- [leg warmers gym](https://fitness.allwomenstalk.com/fitness-goals-for-the-year/)
-- [get fit](https://fitness.allwomenstalk.com/how-to-get-fit-in-nyc/)
-- [yoga for work](https://fitness.allwomenstalk.com/yoga-poses-you-can-do-at-work/)
-- [The 7 Accessories Thatll Prevent Workout Injuries ...](https://fitness.allwomenstalk.com/the-accessories-thatll-prevent-workout-injuries/)
-- [How to Get the Most out of Having a Personal Train...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-having-a-personal-trainer/)
-- [7 Yoga Poses for People Who Want to Improve Their ...](https://fitness.allwomenstalk.com/yoga-poses-thatll-improve-your-brain/)
 - [Compound Exercises to Push You Harder than Ever be...](https://fitness.allwomenstalk.com/compound-exercises-to-push-you-harder-than-ever-before/)
+- [get fit](https://fitness.allwomenstalk.com/how-to-get-fit-in-nyc/)
+- [eco fitness gym](https://fitness.allwomenstalk.com/this-is-how-to-have-an-eco-friendly-workout/)
+- [yoga for work](https://fitness.allwomenstalk.com/yoga-poses-you-can-do-at-work/)
+- [How to Get the Most out of Having a Personal Train...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-having-a-personal-trainer/)
+- [7 Fitness Resolutions That Are Actually Doable for...](https://fitness.allwomenstalk.com/fitness-resolutions-that-are-actually-doable-for-any-age/)
+- [The 7 Accessories Thatll Prevent Workout Injuries ...](https://fitness.allwomenstalk.com/the-accessories-thatll-prevent-workout-injuries/)
+- [meerkat full body](https://fitness.allwomenstalk.com/why-you-should-all-work-out-with-me-on-meerkat/)
+- [7 Yoga Poses for People Who Want to Improve Their ...](https://fitness.allwomenstalk.com/yoga-poses-thatll-improve-your-brain/)
+- [leg warmers gym](https://fitness.allwomenstalk.com/fitness-goals-for-the-year/)
 - [7 Reasons It is Okay to Be Sore after a Workout .....](https://fitness.allwomenstalk.com/reasons-it-is-okay-to-be-sore-after-a-workout/)
 - [Learn How to Relax before You Work out ...](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
 
