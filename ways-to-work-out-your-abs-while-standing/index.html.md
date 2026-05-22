@@ -3,7 +3,7 @@ title: "How to Get a Six-Pack when Youre on Your Feet ..."
 description: "Torso Rotations; Standing Bicycle; Rotating Deadlift; Extended Toe Touch; High Knee Chops; More ..."
 url: "https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/"
 category: "fitness"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # How to Get a Six\-Pack when Youre on Your Feet ...
@@ -56,16 +56,16 @@ Remember to always keep your abs tight and pressed in as you workout. You can do
 
 ## Related Posts
 
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
-- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
-- [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
-- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
-- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
 - [im too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
+- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
+- [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
+- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
 - [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
+- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

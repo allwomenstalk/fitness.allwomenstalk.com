@@ -3,7 +3,7 @@ title: "7 Exercises That Can Be Done with or without Weights ..."
 description: "Side Plank; Pushup; Squat; One Leg Deadlift; Jackknifes; More ..."
 url: "https://fitness.allwomenstalk.com/exercises-that-can-be-done-with-or-without-weights/"
 category: "fitness"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Exercises That Can Be Done with or without Weights ...
@@ -44,16 +44,16 @@ So now that you have both weight and non-weighted versions of these exercises, w
 
 ## Related Posts
 
+- [7 Rules of Gym Etiquette You Should Know ...](https://fitness.allwomenstalk.com/rules-of-gym-etiquette-you-should-know/)
 - [7 Awesome Classes to Try That do Not Feel like a W...](https://fitness.allwomenstalk.com/awesome-classes-to-try-that-do-not-feel-like-a-workout/)
 - [7 Ways to Assess Your Physical Fitness ...](https://fitness.allwomenstalk.com/ways-to-assess-your-physical-fitness/)
-- [Here Are the Hottest Ways for a Woman to Work out ...](https://fitness.allwomenstalk.com/here-are-the-hottest-ways-for-a-woman-to-work-out/)
-- [Find Your Perfect Workout with These Timeless Tips...](https://fitness.allwomenstalk.com/find-your-perfect-workout-with-these-timeless-tips/)
-- [7 Rules of Gym Etiquette You Should Know ...](https://fitness.allwomenstalk.com/rules-of-gym-etiquette-you-should-know/)
 - [7 of the Best Workouts from Trainers around the Wo...](https://fitness.allwomenstalk.com/of-the-best-workouts-from-trainers-around-the-world/)
-- [sit and reach scoring](https://fitness.allwomenstalk.com/stretching-exercises-you-can-do-at-your-desk/)
-- [7 Ways to Find a Workout Buddy That Motivates You ...](https://fitness.allwomenstalk.com/ways-to-find-a-workout-buddy-that-motivates-you/)
+- [Here Are the Hottest Ways for a Woman to Work out ...](https://fitness.allwomenstalk.com/here-are-the-hottest-ways-for-a-woman-to-work-out/)
 - [best exercises for circulation](https://fitness.allwomenstalk.com/improve-your-circulation-with-these-intense-exercises/)
+- [7 Ways to Find a Workout Buddy That Motivates You ...](https://fitness.allwomenstalk.com/ways-to-find-a-workout-buddy-that-motivates-you/)
+- [sit and reach scoring](https://fitness.allwomenstalk.com/stretching-exercises-you-can-do-at-your-desk/)
 - [quick workouts](https://fitness.allwomenstalk.com/quick-workouts-to-squeeze-into-your-day/)
+- [Find Your Perfect Workout with These Timeless Tips...](https://fitness.allwomenstalk.com/find-your-perfect-workout-with-these-timeless-tips/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 

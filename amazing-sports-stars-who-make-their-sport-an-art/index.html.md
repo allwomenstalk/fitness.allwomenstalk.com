@@ -3,7 +3,7 @@ title: "7 Amazing Sports Stars Who Make Their Sport an Art ..."
 description: "Roger Federer; Usain Bolt; Lionel Messi; Ronnie O’Sullivan; Ramy Ashour; More ..."
 url: "https://fitness.allwomenstalk.com/amazing-sports-stars-who-make-their-sport-an-art/"
 category: "fitness"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Amazing Sports Stars Who Make Their Sport an Art ...
@@ -56,16 +56,16 @@ It takes a very special talent to draw comparisons between sport and art. An art
 
 ## Related Posts
 
-- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
-- [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
-- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
 - [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
-- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
 - [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
 - [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
+- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
+- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
+- [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
 - [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [7 Sexiest Athletes of 2011 ...](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
 

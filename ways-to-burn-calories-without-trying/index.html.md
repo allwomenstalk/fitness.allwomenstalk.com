@@ -3,7 +3,7 @@ title: "7 Ways to Burn Calories without Trying ..."
 description: "Go for an Hour-Long Walk; Video Games; Cleaning; Taking the Stairs; Shopping; More ..."
 url: "https://fitness.allwomenstalk.com/ways-to-burn-calories-without-trying/"
 category: "fitness"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Ways to Burn Calories without Trying ...

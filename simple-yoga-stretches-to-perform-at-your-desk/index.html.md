@@ -3,7 +3,7 @@ title: "7 Simple Yoga Stretches to Perform at Your Desk ..."
 description: "Neck Rolls; Eagle Pose (modified for Desk); Side Stretch; Mini Cat-Cow Stretches (modified for Desk); Seated Twist; More ..."
 url: "https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/"
 category: "fitness"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Simple Yoga Stretches to Perform at Your Desk ...
@@ -42,16 +42,16 @@ There’s no set way to perform these stretches, just listen to your own body, w
 
 ## Related Posts
 
-- [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
 - [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
-- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
-- [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
-- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
 - [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
-- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
-- [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
-- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
+- [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
 - [jennifer aniston fit](https://fitness.allwomenstalk.com/fitness-tips-from-jennifer-aniston/)
+- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
+- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
+- [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
+- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
+- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
+- [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
 - [7 Exercises You Can do at Work ...](https://allwomenstalk.com/7-exercises-you-can-do-at-work/)
 - [8 Exercise You Can do at Your Workstation ...](https://fitene.com/8-exercise-you-can-do-at-your-workstation/)
 

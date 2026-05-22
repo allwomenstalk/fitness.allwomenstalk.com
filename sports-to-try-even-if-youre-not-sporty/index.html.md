@@ -3,7 +3,7 @@ title: "7 Sports to Try Even if Youre Not Sporty ..."
 description: "Tennis; Badminton; Cross Country Skiing; Bowling; Slow Pitch Softball; More ..."
 url: "https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/"
 category: "fitness"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Sports to Try Even if Youre Not Sporty ...
@@ -57,15 +57,15 @@ Sports can be the competitive variety, or the relaxed sort. It’s all up to you
 ## Related Posts
 
 - [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
+- [what do you do at a bachelorette party](https://wedding.allwomenstalk.com/fabulous-things-you-can-do-instead-of-a-bachelorette-party/)
 - [stuff to do with your dad](https://teen.allwomenstalk.com/fun-things-you-can-do-with-your-dad/)
+- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
+- [how to have fun at a party without drinking](https://lifestyle.allwomenstalk.com/ways-to-party-without-alcohol/)
+- [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
 - [womens slumber party ideas](https://teen.allwomenstalk.com/fun-ideas-for-a-slumber-party/)
 - [how to pass by time](https://lifestyle.allwomenstalk.com/ways-to-pass-time-when-youre-bored/)
-- [what do you do at a bachelorette party](https://wedding.allwomenstalk.com/fabulous-things-you-can-do-instead-of-a-bachelorette-party/)
-- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
-- [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
-- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
 - [engagement party fun ideas](https://wedding.allwomenstalk.com/super-fun-engagement-party-ideas/)
-- [how to have fun at a party without drinking](https://lifestyle.allwomenstalk.com/ways-to-party-without-alcohol/)
+- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
 - [7 Ways to Have Fun This Winter ...](https://allwomenstalk.com/7-ways-to-have-fun-this-winter/)
 - [6 Sports to Try This Spring ...](https://allwomenstalk.com/6-sports-to-try-this-spring/)
 
