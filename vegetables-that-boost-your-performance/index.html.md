@@ -3,7 +3,7 @@ title: "5 Vegetables That Boost Your Performance ..."
 description: "Spinach; Cabbage; Broccoli; Lettuce; Bean Sprouts; More ..."
 url: "https://fitness.allwomenstalk.com/vegetables-that-boost-your-performance/"
 category: "fitness"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # 5 Vegetables That Boost Your Performance ...
