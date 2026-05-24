@@ -3,7 +3,7 @@ title: "Your Sports Drinks Arent as Healthy as You Think ..."
 description: "Artificial Colors; Sucralose; Brominated Vegetable Oil; High Fructose Corn Syrup; More ..."
 url: "https://fitness.allwomenstalk.com/your-sports-drinks-arent-as-healthy-as-you-think/"
 category: "fitness"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # Your Sports Drinks Arent as Healthy as You Think ...
