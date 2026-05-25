@@ -42,16 +42,16 @@ So get outside and check out a different exercise for every day of the week and 
 
 ## Related Posts
 
-- [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
 - [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
 - [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
-- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
 - [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
 - [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
-- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
-- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
 - [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
+- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
 - [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
+- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
+- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
+- [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

@@ -56,16 +56,16 @@ So be a fit girl and make choices to better your health and your life. You deser
 
 ## Related Posts
 
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
 - [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
-- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
-- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
 - [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
-- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
 - [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
 - [ballerina thighs](https://fitness.allwomenstalk.com/insanely-effective-ballet-moves-for-girls-who-are-struggling-to-get-thinner-thighs/)
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
 - [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
+- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
 - [31 Incredibly Genius Ways for Ladies to Get Killer...](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 - [Exercises to Achieve a Kick-Ass Booty in Bikini Bo...](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
 

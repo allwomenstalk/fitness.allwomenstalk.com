@@ -45,15 +45,15 @@ Now, those hardened gym bunnies out there will be horrified by the above claims 
 
 ## Related Posts
 
+- [is it important to be friends before lovers](https://love.allwomenstalk.com/reasons-to-be-friends-before-lovers/)
 - [should i give this guy a chance](https://love.allwomenstalk.com/reasons-not-to-give-him-a-chance/)
 - [do you think rooming with old friends is a good id...](https://money.allwomenstalk.com/reasons-not-to-room-with-your-best-friend/)
-- [is it important to be friends before lovers](https://love.allwomenstalk.com/reasons-to-be-friends-before-lovers/)
-- [cant wait to love you](https://love.allwomenstalk.com/reasons-why-you-shouldnt-wait-to-say-i-love-you/)
-- [signs a friend is pushing you away](https://love.allwomenstalk.com/reasons-to-quit-pushing-your-single-friends-to-date/)
-- [is a- bad](https://teen.allwomenstalk.com/reasons-not-to-freak-out-if-you-get-a-bad-grade/)
 - [i am popular](https://teen.allwomenstalk.com/reasons-not-to-worry-if-youre-not-popular-at-high-school/)
+- [is a- bad](https://teen.allwomenstalk.com/reasons-not-to-freak-out-if-you-get-a-bad-grade/)
+- [signs a friend is pushing you away](https://love.allwomenstalk.com/reasons-to-quit-pushing-your-single-friends-to-date/)
 - [redhead hair scrunchies](https://hair.allwomenstalk.com/reasons-to-ignore-teasing-about-being-a-redhead/)
 - [how to get into a relationship in college](https://love.allwomenstalk.com/reasons-to-hold-out-on-a-relationship-in-college/)
+- [cant wait to love you](https://love.allwomenstalk.com/reasons-why-you-shouldnt-wait-to-say-i-love-you/)
 - [is silence attractive](https://love.allwomenstalk.com/reasons-to-date-a-quiet-guy/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 - [7 Reasons to Skip a Work-out ...](https://allwomenstalk.com/7-reasons-to-skip-a-work-out/)

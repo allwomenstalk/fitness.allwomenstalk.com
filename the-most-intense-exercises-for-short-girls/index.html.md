@@ -42,16 +42,16 @@ Now, all of you short ladies have a few new exercises to try. Which one of these
 
 ## Related Posts
 
-- [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
 - [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
 - [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
-- [superwoman exercise benefits](https://fitness.allwomenstalk.com/how-exercising-turns-a-normal-woman-into-superwoman/)
-- [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
-- [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
-- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
 - [7 week body transformation](https://fitness.allwomenstalk.com/weeks-to-your-best-body-yet/)
+- [superwoman exercise benefits](https://fitness.allwomenstalk.com/how-exercising-turns-a-normal-woman-into-superwoman/)
 - [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
+- [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
 - [victorias secret jumper](https://fitness.allwomenstalk.com/victorias-secret-workout-tips-for-wannabe-angels/)
+- [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
+- [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
+- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

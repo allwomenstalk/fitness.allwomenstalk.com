@@ -56,14 +56,14 @@ With all these fitness myths brought to reality, are you ready to get your fit o
 
 - [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
 - [jiggle girl](https://fitness.allwomenstalk.com/7-days-of-arm-workoutsfor-girls-who-want-to-say-byeto-the-jiggle/)
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
-- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
-- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
+- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
 - [ballerina thighs](https://fitness.allwomenstalk.com/insanely-effective-ballet-moves-for-girls-who-are-struggling-to-get-thinner-thighs/)
 - [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
-- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
+- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
 - [work out pole](https://fitness.allwomenstalk.com/full-body-sculpting-pole-dancing-exercise-for-girls-who-feel-adventurous/)
 - [pokemon fitness](https://fitness.allwomenstalk.com/pokemon-go-fitness-challenge-to-get-you-in-shape-in-days/)
+- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [8 Surprisingly Effective Fitness Fads You Have to ...](https://health.allwomenstalk.com/surprisingly-effective-fitness-fads-you-have-to-try/)
 

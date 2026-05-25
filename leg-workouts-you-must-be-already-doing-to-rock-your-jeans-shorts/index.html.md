@@ -130,16 +130,16 @@ Source: [wodplanet.com](https://wodplanet.com/10-travel-wods-for-summer/)
 
 ## Related Posts
 
-- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
 - [the work gym](https://fitness.allwomenstalk.com/gym-to-office-how-to-go-from-workout-to-work/)
 - [workouts to slim down](https://fitness.allwomenstalk.com/fun-water-workouts-thatll-help-you-slim-down-too/)
-- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
-- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
-- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
 - [swimming shake](https://fitness.allwomenstalk.com/ways-to-shake-up-your-swimming-routine/)
-- [300 ab workout](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
+- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
 - [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
 - [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
+- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
+- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
+- [300 ab workout](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
+- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
 - [7 Exercises to Tone Your Legs This Summer ...](https://allwomenstalk.com/7-exercises-to-tone-your-legs-this-summer/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

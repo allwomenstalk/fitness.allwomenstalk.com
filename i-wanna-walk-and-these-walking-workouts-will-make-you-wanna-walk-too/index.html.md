@@ -96,16 +96,16 @@ Please don't think **walking workouts** are a cop out and not really a workout. 
 
 ## Related Posts
 
-- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
-- [websites for exercise](https://fitness.allwomenstalk.com/websites-thatll-make-you-want-to-go-to-the-gym-asap/)
-- [belly blast exercises](https://fitness.allwomenstalk.com/combat-belly-fat-with-these-exercises/)
-- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
-- [activities that burn 100 calories](https://fitness.allwomenstalk.com/ways-to-burn-100-calories/)
-- [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
 - [best workouts for stress relief](https://fitness.allwomenstalk.com/workouts-thatll-relax-your-mind-and-body/)
-- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
-- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
+- [websites for exercise](https://fitness.allwomenstalk.com/websites-thatll-make-you-want-to-go-to-the-gym-asap/)
+- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
 - [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
+- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
+- [belly blast exercises](https://fitness.allwomenstalk.com/combat-belly-fat-with-these-exercises/)
+- [activities that burn 100 calories](https://fitness.allwomenstalk.com/ways-to-burn-100-calories/)
+- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
+- [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
+- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
 - [Bump up Your Workouts with These Killer Athletic E...](https://fitness.allwomenstalk.com/bump-up-your-workouts-with-these-killer-athletic-exercises/)
 - [See How Fit You Are: 20 Tough Workouts Only Super ...](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
 

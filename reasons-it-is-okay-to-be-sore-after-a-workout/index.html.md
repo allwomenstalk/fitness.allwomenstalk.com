@@ -43,15 +43,15 @@ Now that you are aware that it okay to be sore after a workout, are you ready to
 ## Related Posts
 
 - [7 Awesome Pilates Moves to Help Strengthen Your Co...](https://fitene.com/awesome-pilates-moves-to-help-strengthen-your-core/)
-- [7 Weeks to Your Fastest 5k ...](https://running.allwomenstalk.com/weeks-to-your-fastest-5k/)
-- [low impact workouts that burn a lot of calories](https://fitness.allwomenstalk.com/low-impact-workouts-that-still-burn-a-lot-of-calories/)
-- [7 Stretches for when Youre Sore after Running ...](https://running.allwomenstalk.com/stretches-for-when-youre-sore-after-running/)
-- [add fitness](https://fitness.allwomenstalk.com/easy-ways-to-add-fitness-to-your-day/)
-- [ease into fitness](https://fitness.allwomenstalk.com/easy-ways-to-ease-into-the-exercise-habit/)
 - [7 Ways to Make Time to Work out without Hiring a S...](https://fitness.allwomenstalk.com/ways-to-make-time-to-work-out-without-hiring-a-sitter/)
-- [warm up before jumping rope](https://fitness.allwomenstalk.com/ways-to-warm-up-before-you-workout/)
-- [7 Ways to Kick Your Rear into Gear and Get in Your...](https://fitness.allwomenstalk.com/ways-to-kick-your-rear-into-gear-and-get-in-your-best-shape/)
 - [7 Fitness Basics for New Exercisers ...](https://fitness.allwomenstalk.com/fitness-basics-for-new-exercisers/)
+- [7 Weeks to Your Fastest 5k ...](https://running.allwomenstalk.com/weeks-to-your-fastest-5k/)
+- [ease into fitness](https://fitness.allwomenstalk.com/easy-ways-to-ease-into-the-exercise-habit/)
+- [7 Ways to Kick Your Rear into Gear and Get in Your...](https://fitness.allwomenstalk.com/ways-to-kick-your-rear-into-gear-and-get-in-your-best-shape/)
+- [7 Stretches for when Youre Sore after Running ...](https://running.allwomenstalk.com/stretches-for-when-youre-sore-after-running/)
+- [warm up before jumping rope](https://fitness.allwomenstalk.com/ways-to-warm-up-before-you-workout/)
+- [add fitness](https://fitness.allwomenstalk.com/easy-ways-to-add-fitness-to-your-day/)
+- [low impact workouts that burn a lot of calories](https://fitness.allwomenstalk.com/low-impact-workouts-that-still-burn-a-lot-of-calories/)
 - [7 Reasons Why a Warm up is Important ...](https://weightloss.allwomenstalk.com/7-reasons-why-a-warm-up-is-important/)
 - [9 Ways to Avoid Muscle Soreness after Exercise ...](https://health.allwomenstalk.com/ways-to-avoid-muscle-soreness-after-exercise/)
 

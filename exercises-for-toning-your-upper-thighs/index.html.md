@@ -42,16 +42,16 @@ So with all of these great exercises to tone your thighs, are you ready to get s
 
 ## Related Posts
 
-- [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
-- [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
+- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
 - [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
 - [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
-- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
-- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
+- [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
 - [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
 - [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
 - [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
+- [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
 - [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
+- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
 - [7 Exercises to Tone Your Calf Muscles ...](https://health.allwomenstalk.com/7-exercises-to-tone-your-calf-muscles/)
 - [Five Activities to Slim and Firm Thighs](https://allwomenstalk.com/five-activities-to-slim-and-firm-thighs/)
 

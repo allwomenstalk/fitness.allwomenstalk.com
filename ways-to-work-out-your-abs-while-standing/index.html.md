@@ -56,16 +56,16 @@ Remember to always keep your abs tight and pressed in as you workout. You can do
 
 ## Related Posts
 
-- [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
-- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
-- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
 - [im too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
+- [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
 - [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
 - [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
+- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
+- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

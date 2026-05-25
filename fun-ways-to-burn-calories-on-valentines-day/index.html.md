@@ -42,14 +42,14 @@ With so many fun ways to celebrate Valentine’s Day while getting your fitness 
 
 ## Related Posts
 
-- [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
-- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
-- [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
-- [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
 - [romantic fairytale](https://love.allwomenstalk.com/how-to-make-falling-in-love-feel-like-a-fairy-tale/)
-- [first valentines together](https://love.allwomenstalk.com/fun-ideas-for-your-first-valentines-day-together/)
-- [valentines e card funny](https://funny.allwomenstalk.com/the-funniest-valentines-day-ecards/)
 - [valentine day pick up lines](https://love.allwomenstalk.com/the-best-pick-up-lines-to-use-on-valentines-day/)
+- [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
+- [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
+- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
+- [valentines e card funny](https://funny.allwomenstalk.com/the-funniest-valentines-day-ecards/)
+- [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
+- [first valentines together](https://love.allwomenstalk.com/fun-ideas-for-your-first-valentines-day-together/)
 - [valentines seafood dinner](https://food.allwomenstalk.com/valentines-day-dinners-to-make-for-your-man/)
 - [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
 - [Pro Tips to Power up Your Workouts and Burn More C...](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)

@@ -63,16 +63,16 @@ Are you too embarrassed to exercise in front of others? Did these tips help?
 
 ## Related Posts
 
-- [how much walking to burn 200 calories](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-anywhere-to-burn-200-calories-in-only-15-minutes/)
+- [10 crunches a day](https://fitness.allwomenstalk.com/workout-challenges-to-get-you-seriously-fit-in-30-days/)
 - [lazy stomach exercises](https://fitness.allwomenstalk.com/simple-yet-effective-ab-exercises-for-girls-lacking-in-effort/)
+- [how much walking to burn 200 calories](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-anywhere-to-burn-200-calories-in-only-15-minutes/)
+- [exercise apps for women](https://apps.allwomenstalk.com/savvy-exercise-apps-for-girls-who-like-working-out-indoors/)
+- [12 minute tabata workout calories](https://weightloss.allwomenstalk.com/hardcore-tabata-workouts-for-girls-wanting-serious-results/)
+- [how many steps in a mile fitbit](https://fitness.allwomenstalk.com/fitbit-hacks-that-are-pure-genius-for-your-fitness-goals/)
 - [inshape for ladies](https://fitness.allwomenstalk.com/workouts-to-get-back-in-shape-for-girls-who-put-on-weight-during-christmas/)
 - [best exercise for midsection](https://fitness.allwomenstalk.com/moves-to-trim-and-tone-your-midsection-for-a-rockin-bod/)
-- [how many steps in a mile fitbit](https://fitness.allwomenstalk.com/fitbit-hacks-that-are-pure-genius-for-your-fitness-goals/)
 - [what are moves on a treadmill](https://fitness.allwomenstalk.com/fat-blasting-moves-for-when-youre-sick-of-the-treadmill/)
-- [10 crunches a day](https://fitness.allwomenstalk.com/workout-challenges-to-get-you-seriously-fit-in-30-days/)
 - [cardio barre calories](https://fitness.allwomenstalk.com/fit-girls-guide-to-the-best-fat-burning-workouts/)
-- [12 minute tabata workout calories](https://weightloss.allwomenstalk.com/hardcore-tabata-workouts-for-girls-wanting-serious-results/)
-- [exercise apps for women](https://apps.allwomenstalk.com/savvy-exercise-apps-for-girls-who-like-working-out-indoors/)
 - [Life-Changing Tips for Girls Who Want to Nail Thei...](https://weightloss.allwomenstalk.com/ways-to-overcome-the-obstacles-of-weight-loss/)
 - [Life Changing Fitness Tips for Busty Gals ...](https://fitness.allwomenstalk.com/fitness-tips-for-busty-ladies/)
 

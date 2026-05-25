@@ -42,16 +42,16 @@ Now that you have great water workouts to add to your current routine, are you r
 
 ## Related Posts
 
-- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
-- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
+- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
 - [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
 - [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
-- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
-- [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
-- [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
-- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
-- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
 - [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
+- [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
+- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
+- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
+- [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
+- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
+- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
 - [7 Ways to Use Swimming to Lose Weight ...](https://weightloss.allwomenstalk.com/ways-to-use-swimming-to-lose-weight/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

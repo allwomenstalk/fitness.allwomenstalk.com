@@ -42,16 +42,16 @@ So are you an avid exerciser? If so, do you feel it has helped you to get better
 
 ## Related Posts
 
-- [benefits of staying in your comfort zone](https://inspiration.allwomenstalk.com/wonderful-benefits-that-stepping-out-of-your-comfort-zone-will-bring/)
-- [why is politics so boring](https://lifestyle.allwomenstalk.com/reasons-why-politics-isnt-boring/)
-- [colleges close to home](https://teen.allwomenstalk.com/reasons-to-attend-a-college-close-to-home/)
-- [reasons to have a tv in the bedroom](https://lifestyle.allwomenstalk.com/reasons-to-get-the-tv-out-of-your-bedroom/)
-- [do you enjoy listening to music while exercising w...](https://fitness.allwomenstalk.com/reasons-to-listen-to-music-while-you-exercise/)
-- [beautiful in green](https://lifestyle.allwomenstalk.com/reasons-why-green-is-gorgeous/)
-- [to be excited](https://inspiration.allwomenstalk.com/reasons-to-be-excited-to-wake-up-each-morning/)
-- [inner artist](https://inspiration.allwomenstalk.com/enriching-reasons-to-embrace-your-inner-artist/)
 - [why is it important to study science](https://teen.allwomenstalk.com/smart-reasons-to-study-science/)
+- [why is politics so boring](https://lifestyle.allwomenstalk.com/reasons-why-politics-isnt-boring/)
 - [why do people like chess](https://lifestyle.allwomenstalk.com/life-changing-reasons-to-take-up-chess/)
+- [colleges close to home](https://teen.allwomenstalk.com/reasons-to-attend-a-college-close-to-home/)
+- [do you enjoy listening to music while exercising w...](https://fitness.allwomenstalk.com/reasons-to-listen-to-music-while-you-exercise/)
+- [reasons to have a tv in the bedroom](https://lifestyle.allwomenstalk.com/reasons-to-get-the-tv-out-of-your-bedroom/)
+- [benefits of staying in your comfort zone](https://inspiration.allwomenstalk.com/wonderful-benefits-that-stepping-out-of-your-comfort-zone-will-bring/)
+- [inner artist](https://inspiration.allwomenstalk.com/enriching-reasons-to-embrace-your-inner-artist/)
+- [to be excited](https://inspiration.allwomenstalk.com/reasons-to-be-excited-to-wake-up-each-morning/)
+- [beautiful in green](https://lifestyle.allwomenstalk.com/reasons-why-green-is-gorgeous/)
 - [7 Reasons Why a Warm up is Important ...](https://weightloss.allwomenstalk.com/7-reasons-why-a-warm-up-is-important/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 

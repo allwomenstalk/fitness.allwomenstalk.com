@@ -14,16 +14,16 @@ If you do this workout frequently, think of all of the calories you'll end up bu
 
 ## Related Posts
 
-- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
-- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
-- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
 - [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
 - [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
-- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
 - [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
-- [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
 - [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
+- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
+- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
+- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
 - [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
+- [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
 - [7 Body Blasting Workouts to Try for the Body of Yo...](https://weightloss.allwomenstalk.com/body-blasting-workouts-to-try-for-the-body-of-your-dreams/)
 - [Pro Tips to Power up Your Workouts and Burn More C...](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)
 

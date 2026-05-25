@@ -42,16 +42,16 @@ So now that you know what to do after you worked out super hard. Are you ready t
 
 ## Related Posts
 
-- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
+- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
+- [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
 - [squat types](https://fitness.allwomenstalk.com/different-squat-variations-for-a-killer-derrier/)
+- [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
 - [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
 - [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
-- [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
-- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
 - [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
 - [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
-- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
-- [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
+- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
+- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 - [7 Recommended Post-Workout Activities ...](https://allwomenstalk.com/7-recommended-post-workout-activities/)
 

@@ -42,16 +42,16 @@ So better your health, mind and body with the super stretches and feel alert as 
 
 ## Related Posts
 
-- [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
-- [how to stick to your new years fitness resolution](https://fitness.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-doing-more-exercise/)
-- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
-- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
-- [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
-- [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
-- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
 - [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
-- [hows that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
+- [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
+- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
+- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
+- [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
+- [how to stick to your new years fitness resolution](https://fitness.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-doing-more-exercise/)
 - [smartbmicalculator](https://fitness.allwomenstalk.com/how-to-work-out-how-fit-you-are/)
+- [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
+- [hows that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
+- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 

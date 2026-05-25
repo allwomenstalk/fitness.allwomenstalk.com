@@ -75,15 +75,15 @@ So follow these tips and watch your skin radiate, the number on the scale drop a
 ## Related Posts
 
 - [How to Be Fearless to Get What You Want ...](https://inspiration.allwomenstalk.com/you-have-to-be-fearless-to-get-what-you-want/)
-- [How to Be More Productive when Youve Slacked off ....](https://inspiration.allwomenstalk.com/how-to-have-a-more-productive-day-if-youve-been-slacking-lately/)
-- [10 Things You Need to Get out and do Right Now ins...](https://lifestyle.allwomenstalk.com/things-you-must-do-right-now/)
-- [Smart Ways  to Improve Your Mental Health ...](https://health.allwomenstalk.com/smart-ways-to-improve-your-mental-health/)
 - [Undeniably Simple Things You Can do to Improve You...](https://inspiration.allwomenstalk.com/undeniably-simple-things-you-can-do-to-improve-your-life-by-100/)
-- [how to get my groove back](https://inspiration.allwomenstalk.com/how-to-get-your-groove-back-when-you-hate-the-world/)
+- [How to Be More Productive when Youve Slacked off ....](https://inspiration.allwomenstalk.com/how-to-have-a-more-productive-day-if-youve-been-slacking-lately/)
 - [Fab Tricks for Going from Unmotivated to Unstoppab...](https://inspiration.allwomenstalk.com/the-tricks-for-going-from-unmotivated-to-unstoppable/)
 - [poopoo.pro hacks](https://lifestyle.allwomenstalk.com/vintage-life-hacks-you-can-use-today/)
-- [how to carry yourself with confidence](https://inspiration.allwomenstalk.com/ways-to-boost-your-self-confidence-in-less-than-5-minutes/)
+- [Smart Ways  to Improve Your Mental Health ...](https://health.allwomenstalk.com/smart-ways-to-improve-your-mental-health/)
+- [10 Things You Need to Get out and do Right Now ins...](https://lifestyle.allwomenstalk.com/things-you-must-do-right-now/)
+- [how to get my groove back](https://inspiration.allwomenstalk.com/how-to-get-your-groove-back-when-you-hate-the-world/)
 - [The Secret to Making Your Boredom Work for You ...](https://lifestyle.allwomenstalk.com/the-secret-to-making-your-boredom-work-for-you/)
+- [how to carry yourself with confidence](https://inspiration.allwomenstalk.com/ways-to-boost-your-self-confidence-in-less-than-5-minutes/)
 - [10 Ways to Change Your Life in 30 Days ...](https://allwomenstalk.com/10-ways-to-change-your-life-in-30-days/)
 - [13 Ways to Transform Yourself for the New Year ...](https://allwomenstalk.com/7-ways-to-transform-yourself-for-the-new-year/)
 

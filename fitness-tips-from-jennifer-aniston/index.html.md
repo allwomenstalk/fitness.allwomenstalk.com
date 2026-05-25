@@ -42,16 +42,16 @@ With all these great fitness tips from Jennifer Aniston, you better get working 
 
 ## Related Posts
 
-- [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
 - [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
+- [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
 - [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
+- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
+- [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
+- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
+- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
 - [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
-- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
-- [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
 - [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
-- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [7 Great Tips from My Personal Trainer ...](https://allwomenstalk.com/7-great-tips-from-my-personal-trainer/)
 - [7 Tips from My Personal Trainer ...](https://allwomenstalk.com/7-tips-from-my-personal-trainer/)
 

@@ -42,16 +42,16 @@ While I am more into my yoga and relaxing than anything, I do appreciate the ben
 
 ## Related Posts
 
-- [how to be motivated to run](https://running.allwomenstalk.com/ways-to-stay-motivated-while-running-on-the-treadmill/)
 - [lazy ways to burn calories](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)
 - [7 Exercises to Vary Your Workout This Year ...](https://fitness.allwomenstalk.com/exercises-to-vary-your-workout-this-year/)
 - [7 of My Favorite Workout DVDS for You to Try ...](https://fitness.allwomenstalk.com/of-my-favorite-workout-dvds-for-you-to-try/)
-- [home gym equipment recommendations](https://fitness.allwomenstalk.com/home-gym-equipment-must-haves-for-an-effective-workout/)
-- [7 Ways to Train like an Olympic Athlete ...](https://fitness.allwomenstalk.com/ways-to-train-like-an-olympic-athlete/)
-- [9 Ways to Engage in Fitness at Home That Are Fun ....](https://fitness.allwomenstalk.com/ways-to-engage-in-fitness-at-home-that-are-fun/)
 - [squeezing exercise](https://fitness.allwomenstalk.com/tips-to-squeeze-a-workout-in/)
-- [7 Things You Need to Know during Your First Trip t...](https://fitness.allwomenstalk.com/things-you-need-to-know-during-your-first-trip-to-the-gym/)
 - [7 Exercises to do with Caution to Prevent Injury ....](https://fitness.allwomenstalk.com/exercises-to-do-with-caution-to-prevent-injury/)
+- [7 Ways to Train like an Olympic Athlete ...](https://fitness.allwomenstalk.com/ways-to-train-like-an-olympic-athlete/)
+- [home gym equipment recommendations](https://fitness.allwomenstalk.com/home-gym-equipment-must-haves-for-an-effective-workout/)
+- [how to be motivated to run](https://running.allwomenstalk.com/ways-to-stay-motivated-while-running-on-the-treadmill/)
+- [7 Things You Need to Know during Your First Trip t...](https://fitness.allwomenstalk.com/things-you-need-to-know-during-your-first-trip-to-the-gym/)
+- [9 Ways to Engage in Fitness at Home That Are Fun ....](https://fitness.allwomenstalk.com/ways-to-engage-in-fitness-at-home-that-are-fun/)
 - [7 Reasons to Run and How It Will Change Your Life ...](https://health.allwomenstalk.com/reasons-to-run-and-how-it-will-change-your-life/)
 - [7 Unique Ways to Get Fit ...](https://weightloss.allwomenstalk.com/unique-ways-to-get-fit/)
 

@@ -114,16 +114,16 @@ I want this shirt. It's totally motivational. Except it's not. But it's funny!
 
 ## Related Posts
 
-- [All the Workouts You Need to Get a Grand Slam Body...](https://weightloss.allwomenstalk.com/workouts-for-a-grand-slam-body/)
-- [7 Ways to Shape up in 7 Minutes ...](https://fitness.allwomenstalk.com/ways-to-shape-up-in-7-minutes/)
-- [7 Secrets of an Amazing Athlete That You Can Learn...](https://fitness.allwomenstalk.com/secrets-of-an-amazing-athlete-that-you-can-learn-from/)
 - [7 Ways to Transition from Treadmill to Outdoor Run...](https://running.allwomenstalk.com/ways-to-transition-from-treadmill-to-outdoor-running-2/)
-- [7 Workouts to do on Days when You Dont Feel like W...](https://fitness.allwomenstalk.com/workouts-to-do-on-days-when-you-dont-feel-like-working-out/)
-- [9 Awesome Reasons to Try Pilates ...](https://fitness.allwomenstalk.com/awesome-reasons-to-try-pilates/)
 - [7 Ways to Experience the Joy of Running ...](https://running.allwomenstalk.com/ways-to-experience-the-joy-of-running/)
-- [7 Ways to Pace Your Runs the Right Way ...](https://running.allwomenstalk.com/ways-to-pace-your-runs-the-right-way/)
+- [7 Secrets of an Amazing Athlete That You Can Learn...](https://fitness.allwomenstalk.com/secrets-of-an-amazing-athlete-that-you-can-learn-from/)
+- [9 Awesome Reasons to Try Pilates ...](https://fitness.allwomenstalk.com/awesome-reasons-to-try-pilates/)
+- [All the Workouts You Need to Get a Grand Slam Body...](https://weightloss.allwomenstalk.com/workouts-for-a-grand-slam-body/)
 - [why is gym class important](https://teen.allwomenstalk.com/reasons-why-its-healthy-to-take-gym-class-seriously/)
+- [7 Ways to Pace Your Runs the Right Way ...](https://running.allwomenstalk.com/ways-to-pace-your-runs-the-right-way/)
+- [7 Workouts to do on Days when You Dont Feel like W...](https://fitness.allwomenstalk.com/workouts-to-do-on-days-when-you-dont-feel-like-working-out/)
 - [gym to destress](https://fitness.allwomenstalk.com/surprising-reasons-why-you-should-destress-before-working-out/)
+- [7 Ways to Shape up in 7 Minutes ...](https://fitness.allwomenstalk.com/ways-to-shape-up-in-7-minutes/)
 - [Top I-dont-wanna-workout Excuses](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
 - [41 Inspirational Workout Tanks to Get You Motivate...](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 

@@ -63,16 +63,16 @@ Believe it or not, working out can be fun! And watching movies doesn't have to b
 
 ## Related Posts
 
-- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
-- [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
-- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
-- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
-- [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
-- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
 - [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
-- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
 - [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
+- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
+- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
+- [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
+- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
+- [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
+- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
 - [7 Core Strengthening Exercises ...](https://health.allwomenstalk.com/core-strengthening-exercises/)
 - [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
 

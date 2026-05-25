@@ -42,16 +42,16 @@ With these tips on just how you should utilize your rest day, follow along to ge
 
 ## Related Posts
 
-- [what to put in a easter basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/)
-- [bachelorette party girls](https://wedding.allwomenstalk.com/alternatives-to-a-bachelorette-party-for-girls-who-want-to-shake-things-up/)
-- [fun places to go on the weekend](https://lifestyle.allwomenstalk.com/fun-things-to-do-to-have-the-best-weekend-ever/)
-- [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
-- [graduation cookout ideas](https://diy.allwomenstalk.com/grad-party-ideas-thatll-have-your-party-the-event-of-the-season/)
-- [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
-- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
-- [best friend summer bucket list ideas](https://lifestyle.allwomenstalk.com/grab-your-gal-pals-and-take-on-this-ultimate-bff-bucket-list/)
-- [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
 - [what to do before christmas](https://lifestyle.allwomenstalk.com/things-to-do-before-christmas-so-your-holidays-dont-suck/)
+- [graduation cookout ideas](https://diy.allwomenstalk.com/grad-party-ideas-thatll-have-your-party-the-event-of-the-season/)
+- [best friend summer bucket list ideas](https://lifestyle.allwomenstalk.com/grab-your-gal-pals-and-take-on-this-ultimate-bff-bucket-list/)
+- [bachelorette party girls](https://wedding.allwomenstalk.com/alternatives-to-a-bachelorette-party-for-girls-who-want-to-shake-things-up/)
+- [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
+- [what to put in a easter basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/)
+- [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
+- [fun places to go on the weekend](https://lifestyle.allwomenstalk.com/fun-things-to-do-to-have-the-best-weekend-ever/)
+- [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
+- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 - [10 Best Ways to Relax ...](https://allwomenstalk.com/10-best-ways-to-relax/)
 

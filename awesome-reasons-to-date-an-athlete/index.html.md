@@ -42,16 +42,16 @@ So, have you thought about going to the gym to find Mr. Right now? Dating an ath
 
 ## Related Posts
 
-- [why we watch](https://inspiration.allwomenstalk.com/reasons-why-you-should-spend-more-time-people-watching/)
-- [why you should visit the philippines](https://travel.allwomenstalk.com/reasons-why-you-should-visit-the-philippines-after-the-typhoon/)
-- [why is to kill a mockingbird important](https://books.allwomenstalk.com/reasons-why-you-should-read-to-kill-a-mockingbird/)
 - [how do you put together a flute](https://music.allwomenstalk.com/pros-and-cons-of-playing-the-flute/)
-- [why is it so hard to stand up straight](https://health.allwomenstalk.com/reasons-to-stand-up-straight-always/)
+- [why you should visit the philippines](https://travel.allwomenstalk.com/reasons-why-you-should-visit-the-philippines-after-the-typhoon/)
+- [how does integrity help you in life](https://inspiration.allwomenstalk.com/reasons-why-integrity-is-important/)
+- [its not too late](https://inspiration.allwomenstalk.com/reasons-why-its-never-too-late-to-do-anything/)
+- [why is to kill a mockingbird important](https://books.allwomenstalk.com/reasons-why-you-should-read-to-kill-a-mockingbird/)
+- [why we watch](https://inspiration.allwomenstalk.com/reasons-why-you-should-spend-more-time-people-watching/)
 - [vitamix quiz](https://food.allwomenstalk.com/reasons-to-own-a-vitamix-blender/)
 - [good grammar or proper grammar](https://lifestyle.allwomenstalk.com/important-reasons-why-good-grammar-matters/)
-- [its not too late](https://inspiration.allwomenstalk.com/reasons-why-its-never-too-late-to-do-anything/)
 - [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
-- [how does integrity help you in life](https://inspiration.allwomenstalk.com/reasons-why-integrity-is-important/)
+- [why is it so hard to stand up straight](https://health.allwomenstalk.com/reasons-to-stand-up-straight-always/)
 - [7 Tips for a Jogging Date ...](https://health.allwomenstalk.com/7-tips-for-a-jogging-date/)
 - [7 Tips to Finding the Right Guy ...](https://love.allwomenstalk.com/tips-to-finding-the-right-guy/)
 

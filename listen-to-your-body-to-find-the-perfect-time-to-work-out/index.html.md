@@ -36,16 +36,16 @@ If in the past you have felt weak or dizzy when exercising, then this might be d
 
 ## Related Posts
 
-- [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
-- [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
-- [zumba funny gif](https://fitness.allwomenstalk.com/the-best-workout-according-to-your-mood/)
-- [booty exercises](https://fitness.allwomenstalk.com/exercises-to-tone-your-butt-while-you-watch-tv/)
-- [5 minute belly workout](https://fitness.allwomenstalk.com/5-minute-belly-blasting-walk/)
-- [workout channels youtube](https://fitness.allwomenstalk.com/best-youtube-workout-channels/)
-- [hip hop dance workout for beginners](https://fitness.allwomenstalk.com/hip-hop-tabata-workout/)
 - [pug on treadmill](https://lifestyle.allwomenstalk.com/things-to-consider-before-treadmill-exercising-your-dog/)
-- [best celebrity workout routines](https://fitness.allwomenstalk.com/10-minute-workouts-done-by-celebrities/)
+- [zumba funny gif](https://fitness.allwomenstalk.com/the-best-workout-according-to-your-mood/)
+- [5 minute belly workout](https://fitness.allwomenstalk.com/5-minute-belly-blasting-walk/)
+- [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
 - [easiest ways to get abs](https://fitness.allwomenstalk.com/the-easiest-peasiest-way-to-get-abs-without-hitting-the-gym/)
+- [booty exercises](https://fitness.allwomenstalk.com/exercises-to-tone-your-butt-while-you-watch-tv/)
+- [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
+- [workout channels youtube](https://fitness.allwomenstalk.com/best-youtube-workout-channels/)
+- [best celebrity workout routines](https://fitness.allwomenstalk.com/10-minute-workouts-done-by-celebrities/)
+- [hip hop dance workout for beginners](https://fitness.allwomenstalk.com/hip-hop-tabata-workout/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 - [7 Tips for Finding the Right Exercise for You ...](https://fitness.allwomenstalk.com/tips-for-finding-the-right-exercise-for-you/)
 

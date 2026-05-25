@@ -42,16 +42,16 @@ The ability to keep your composure at all time gives you an edge over your oppon
 
 ## Related Posts
 
-- [how to cope with embarrassing moments](https://lifestyle.allwomenstalk.com/ways-to-recover-from-an-embarrassing-moment-2/)
 - [7 tricks to make yourself stop texting and driving](https://lifestyle.allwomenstalk.com/ways-to-break-the-texting-and-driving-habit/)
+- [how to cope with embarrassing moments](https://lifestyle.allwomenstalk.com/ways-to-recover-from-an-embarrassing-moment-2/)
 - [how to handle rumors](https://inspiration.allwomenstalk.com/empowering-ways-to-deal-with-rumors/)
+- [makepeace jewelry](https://lifestyle.allwomenstalk.com/ways-to-make-peace-with-your-siblings-as-an-adult/)
+- [cheating revenge ideas](https://love.allwomenstalk.com/awesome-ways-to-get-back-at-a-cheater/)
+- [how to deal with difficult colleagues](https://money.allwomenstalk.com/ways-to-deal-with-difficult-colleagues-so-they-dont-spoil-your-day/)
+- [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
 - [unwanted crush](https://love.allwomenstalk.com/tips-on-dealing-with-an-unwanted-crush/)
 - [what does it mean when someone mimics you](https://inspiration.allwomenstalk.com/ways-to-deal-when-someone-constantly-imitates-you/)
-- [how to deal with difficult colleagues](https://money.allwomenstalk.com/ways-to-deal-with-difficult-colleagues-so-they-dont-spoil-your-day/)
 - [falling out between friends](https://teen.allwomenstalk.com/tips-for-when-you-have-a-falling-out-with-your-best-friend/)
-- [makepeace jewelry](https://lifestyle.allwomenstalk.com/ways-to-make-peace-with-your-siblings-as-an-adult/)
-- [how to reach a compromise](https://love.allwomenstalk.com/steps-to-help-you-reach-a-compromise-with-your-partner/)
-- [cheating revenge ideas](https://love.allwomenstalk.com/awesome-ways-to-get-back-at-a-cheater/)
 - [7 Tips on Controlling Your Attitude ...](https://allwomenstalk.com/7-tips-on-controlling-your-attitude/)
 - [7 Tips on Dealing with Frustration ...](https://allwomenstalk.com/7-tips-on-dealing-with-frustration/)
 

@@ -16,16 +16,16 @@ Do you plan on watching Netflix today? Do you plan on exercising today?
 
 ## Related Posts
 
-- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
-- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
 - [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
 - [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
-- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
-- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
 - [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
-- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
 - [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
 - [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
+- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
+- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
+- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
+- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
 - [8 Tips for Working out at Home ...](https://health.allwomenstalk.com/tips-for-working-out-at-home/)
 - [10 Tips for an Effective Work-out ...](https://allwomenstalk.com/10-tips-for-an-effective-work-out/)
 

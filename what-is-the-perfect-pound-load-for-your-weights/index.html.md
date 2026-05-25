@@ -44,14 +44,14 @@ Do you lift weights? What other advice can you share?
 
 - [loreal paris riche twist](https://fitness.allwomenstalk.com/skate-dancing-is-the-hottest-new-workout-around/)
 - [7 plus-Sized Fitness Brands You Should Buy ...](https://fashion.allwomenstalk.com/plus-sized-fitness-brands-you-should-buy/)
+- [paris le stylo shadow avant azure](https://running.allwomenstalk.com/minute-strength-training-workout-for-runners/)
 - [5 min abs workout](https://fitness.allwomenstalk.com/workout-videos-that-are-only-5-minutes-long/)
+- [Rules to Follow when Youre Setting Fitness Goals f...](https://fitness.allwomenstalk.com/follow-these-rules-when-setting-fitness-goals/)
 - [The Yoga Class Thats Raising Money for Charity ...](https://fitness.allwomenstalk.com/the-yoga-class-thats-raising-money-for-charity/)
-- [The 5-Minute  Stretch Sequence You Need to Stay Lo...](https://fitness.allwomenstalk.com/5-minute-stretch-sequence-to-stay-long-and-lean/)
 - [These Mental Rules Will Help You Get in Shape Quic...](https://fitness.allwomenstalk.com/these-mental-rules-will-help-you-get-in-shape-quick/)
 - [Simple Exercises to do Even when You Hurt ...](https://fitness.allwomenstalk.com/simple-exercises-you-can-do-even-when-youre-hurting/)
-- [paris le stylo shadow avant azure](https://running.allwomenstalk.com/minute-strength-training-workout-for-runners/)
-- [Rules to Follow when Youre Setting Fitness Goals f...](https://fitness.allwomenstalk.com/follow-these-rules-when-setting-fitness-goals/)
 - [heart rate bra](https://apps.allwomenstalk.com/the-bra-thatll-give-you-a-better-workout/)
+- [The 5-Minute  Stretch Sequence You Need to Stay Lo...](https://fitness.allwomenstalk.com/5-minute-stretch-sequence-to-stay-long-and-lean/)
 - [7 Steps to a Weight Lifting Routine for Beginners ...](https://weightloss.allwomenstalk.com/steps-to-a-weight-lifting-routine-for-beginners/)
 - [7 Ways in Which Lifting Weights Can Help Lose Weig...](https://weightloss.allwomenstalk.com/ways-in-which-lifting-weights-can-help-lose-weight/)
 

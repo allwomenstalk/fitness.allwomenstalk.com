@@ -49,16 +49,16 @@ Want some more yoga-inspired stretches? Check out the rest of them on [cosmopoli
 
 ## Related Posts
 
-- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
-- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
-- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
 - [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
-- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
-- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
-- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
+- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
+- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
+- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
+- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
+- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
 - [20 lb kettlebell workout](https://fitness.allwomenstalk.com/the-best-exercises-using-kettle-bells/)
+- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
 - [9 Ways to Avoid Muscle Soreness after Exercise ...](https://health.allwomenstalk.com/ways-to-avoid-muscle-soreness-after-exercise/)
 - [8 Great Post-Workout Stretches ...](https://weightloss.allwomenstalk.com/great-post-workout-stretches/)
 

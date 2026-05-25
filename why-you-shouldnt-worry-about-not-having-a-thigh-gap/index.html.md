@@ -22,15 +22,15 @@ There's also nothing you can do about the width of your hipbones. Don’t forget
 
 ## Related Posts
 
-- [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
-- [you cant say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
-- [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
-- [is it okay to be picky with friends](https://lifestyle.allwomenstalk.com/reasons-to-be-choosy-about-your-friends/)
-- [excuses guys make to not see you](https://love.allwomenstalk.com/excuses-guys-make-when-they-dont-want-to-commit/)
-- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
 - [what is a passenger princess](https://parenting.allwomenstalk.com/reasons-why-princess-syndrome-is-unhealthy/)
+- [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
 - [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
+- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
+- [excuses guys make to not see you](https://love.allwomenstalk.com/excuses-guys-make-when-they-dont-want-to-commit/)
 - [warning signs of a mamas boy](https://love.allwomenstalk.com/reasons-never-to-date-a-mommas-boy/)
+- [you cant say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
+- [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
+- [is it okay to be picky with friends](https://lifestyle.allwomenstalk.com/reasons-to-be-choosy-about-your-friends/)
 - [suicide is not an option](https://inspiration.allwomenstalk.com/why-suicide-is-not-an-option/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 - [7 Reasons to Love Your Body Just the Way It is ...](https://allwomenstalk.com/7-reasons-to-love-your-body-just-the-way-it-is/)

@@ -42,16 +42,16 @@ The good thing about belly exercises is that most of them do not require any add
 
 ## Related Posts
 
-- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
-- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
-- [couch gym](https://fitness.allwomenstalk.com/how-to-go-from-being-a-couch-potato-to-a-gym-bunny/)
-- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
-- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
-- [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
 - [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
-- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
+- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
+- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
+- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
+- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
 - [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
 - [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
+- [couch gym](https://fitness.allwomenstalk.com/how-to-go-from-being-a-couch-potato-to-a-gym-bunny/)
+- [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
+- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
 - [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 

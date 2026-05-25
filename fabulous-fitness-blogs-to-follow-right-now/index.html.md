@@ -99,16 +99,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [what to make with old clothes](https://diy.allwomenstalk.com/best-blogs-for-refashioning-your-clothes/)
 - [models blogs](https://fashion.allwomenstalk.com/cool-model-blogs/)
-- [wedding blogger](https://wedding.allwomenstalk.com/wedding-blogs-to-follow-on-social-media-networks/)
-- [tumblr blogs to follow](https://lifestyle.allwomenstalk.com/tumblr-blogs-to-follow-to-brighten-your-day/)
-- [apple dpz](https://lifestyle.allwomenstalk.com/awesome-websites-for-fangirls-to-flail-over/)
-- [plus size blogs](https://fashion.allwomenstalk.com/incredible-plus-sized-fashion-bloggers-that-we-love/)
-- [how to get followers on tumblr](https://lifestyle.allwomenstalk.com/ways-to-gain-more-tumblr-followers/)
-- [paleo food bloggers](https://food.allwomenstalk.com/of-the-best-paleo-blogs-out-there-to-check-out-today/)
 - [pinterest business blog](https://lifestyle.allwomenstalk.com/miraculous-ways-to-use-pinterest-to-market-your-blog-or-business/)
 - [raw food recipes](https://food.allwomenstalk.com/righteously-raw-food-blogs-that-i-just-love/)
+- [what to make with old clothes](https://diy.allwomenstalk.com/best-blogs-for-refashioning-your-clothes/)
+- [how to get followers on tumblr](https://lifestyle.allwomenstalk.com/ways-to-gain-more-tumblr-followers/)
+- [paleo food bloggers](https://food.allwomenstalk.com/of-the-best-paleo-blogs-out-there-to-check-out-today/)
+- [plus size blogs](https://fashion.allwomenstalk.com/incredible-plus-sized-fashion-bloggers-that-we-love/)
+- [apple dpz](https://lifestyle.allwomenstalk.com/awesome-websites-for-fangirls-to-flail-over/)
+- [wedding blogger](https://wedding.allwomenstalk.com/wedding-blogs-to-follow-on-social-media-networks/)
+- [tumblr blogs to follow](https://lifestyle.allwomenstalk.com/tumblr-blogs-to-follow-to-brighten-your-day/)
 - [10 Best Wellness Blogs for Women ...](https://allwomenstalk.com/10-best-wellness-blogs-for-women/)
 - [10 Best Lifestyle Blogs for Women ...](https://allwomenstalk.com/10-best-lifestyle-blogs-for-women/)
 

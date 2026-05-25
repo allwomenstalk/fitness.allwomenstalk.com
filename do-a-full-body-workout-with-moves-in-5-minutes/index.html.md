@@ -16,16 +16,16 @@ Are you going to try this workout today?
 
 ## Related Posts
 
-- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
+- [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
+- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
+- [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
 - [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
 - [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
-- [exercise for bra bulge](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-bra-bulge/)
+- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
+- [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
 - [burn 150 calories](https://fitness.allwomenstalk.com/the-minute-workout-thatll-burn-150-calories/)
 - [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
-- [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
-- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
-- [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
-- [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
+- [exercise for bra bulge](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-bra-bulge/)
 - [10 Step Full Body Exercise Program ...](https://fitene.com/full-body-exercise-program/)
 - [5 Best Summer Workouts ...](https://allwomenstalk.com/best-summer-workouts/)
 

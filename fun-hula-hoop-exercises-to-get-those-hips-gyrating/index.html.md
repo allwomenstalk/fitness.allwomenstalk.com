@@ -42,16 +42,16 @@ Hope you have enjoyed these fun hula hooping workouts, and that you can use them
 
 ## Related Posts
 
-- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
-- [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
-- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
-- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
-- [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
-- [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
-- [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
 - [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
 - [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
 - [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
+- [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
+- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
+- [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
+- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
+- [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
+- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
+- [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
 - [7 Fun Exercise Routines to Adopt in 2012 ...](https://health.allwomenstalk.com/fun-exercise-routines-to-adopt-in/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

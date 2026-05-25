@@ -44,16 +44,16 @@ I have really enjoyed aqua aerobics, and plan to continue for a long time using 
 
 ## Related Posts
 
-- [7 Reasons to Stay at All-Inclusive Resorts ...](https://travel.allwomenstalk.com/reasons-to-stay-at-all-inclusive-resorts/)
-- [7 Critical Reasons Our Nation Needs a Health Makeo...](https://vityle.com/critical-reasons-our-nation-needs-a-health-makeover/)
-- [super warm onesie](https://funny.allwomenstalk.com/awesome-reasons-you-need-to-buy-a-onesie/)
-- [7 Reasons Why Viruses Are Good and Why You Should ...](https://health.allwomenstalk.com/reasons-why-viruses-are-good-and-why-you-should-thank-them/)
-- [benefit of having friends](https://health.allwomenstalk.com/health-benefits-of-having-friends/)
-- [does spinning tone legs](https://fitness.allwomenstalk.com/reasons-to-take-a-spinning-class/)
-- [7 Most Convincing Reasons to Give up Smoking ...](https://health.allwomenstalk.com/most-convincing-reasons-to-give-up-smoking/)
 - [7 Reasons to Exercise in the Morning ...](https://fitness.allwomenstalk.com/reasons-to-exercise-in-the-morning/)
+- [super warm onesie](https://funny.allwomenstalk.com/awesome-reasons-you-need-to-buy-a-onesie/)
+- [7 Most Convincing Reasons to Give up Smoking ...](https://health.allwomenstalk.com/most-convincing-reasons-to-give-up-smoking/)
+- [does spinning tone legs](https://fitness.allwomenstalk.com/reasons-to-take-a-spinning-class/)
+- [7 Reasons to Stay at All-Inclusive Resorts ...](https://travel.allwomenstalk.com/reasons-to-stay-at-all-inclusive-resorts/)
+- [benefit of having friends](https://health.allwomenstalk.com/health-benefits-of-having-friends/)
+- [7 Critical Reasons Our Nation Needs a Health Makeo...](https://vityle.com/critical-reasons-our-nation-needs-a-health-makeover/)
 - [assertive nature](https://inspiration.allwomenstalk.com/reasons-to-be-more-assertive-in-life/)
 - [Excellent Reasons to Pack up and Travel Europe ...](https://travel.allwomenstalk.com/excellent-reasons-to-travel-around-europe/)
+- [7 Reasons Why Viruses Are Good and Why You Should ...](https://health.allwomenstalk.com/reasons-why-viruses-are-good-and-why-you-should-thank-them/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 - [7 Reasons to Say Yes to Yoga ...](https://allwomenstalk.com/7-reasons-to-say-yes-to-yoga/)
 

@@ -66,16 +66,16 @@ High intensity interval training (HIIT) only takes about 4 minutes to complete a
 
 ## Related Posts
 
-- [how to get in shape without a gym](https://fitness.allwomenstalk.com/the-best-ways-to-get-fit-without-a-gym/)
-- [towel stretch exercise](https://fitness.allwomenstalk.com/try-out-this-5-minute-towel-stretch-to-start-your-workout/)
-- [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
-- [runner recovery tools](https://fitness.allwomenstalk.com/these-recovery-tools-will-make-exercise-even-easier/)
-- [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
-- [lucy wyndham-read 30 day shred](https://fitness.allwomenstalk.com/challenge-yourself-to-do-these-badass-workouts-with-your-bestie/)
-- [100 percent cotton workout clothes](https://fashion.allwomenstalk.com/how-your-workout-clothes-are-ruining-your-workout/)
 - [exercise gif funny](https://fitness.allwomenstalk.com/how-to-survive-common-gym-struggles-weve-all-faced/)
+- [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
 - [five minute arms](https://fitness.allwomenstalk.com/try-this-5-minute-bodyweight-workout-for-your-arms/)
+- [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
+- [100 percent cotton workout clothes](https://fashion.allwomenstalk.com/how-your-workout-clothes-are-ruining-your-workout/)
+- [towel stretch exercise](https://fitness.allwomenstalk.com/try-out-this-5-minute-towel-stretch-to-start-your-workout/)
+- [lucy wyndham-read 30 day shred](https://fitness.allwomenstalk.com/challenge-yourself-to-do-these-badass-workouts-with-your-bestie/)
+- [how to get in shape without a gym](https://fitness.allwomenstalk.com/the-best-ways-to-get-fit-without-a-gym/)
 - [harpers gym](https://fitness.allwomenstalk.com/bob-harpers-5-minute-fat-burning-workout/)
+- [runner recovery tools](https://fitness.allwomenstalk.com/these-recovery-tools-will-make-exercise-even-easier/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 - [18 Tips to Help You Stick to Your Workout ...](https://fitene.com/tips-to-help-you-stick-to-your-workout/)
 

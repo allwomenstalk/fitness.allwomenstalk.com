@@ -148,16 +148,16 @@ So with all of this amazing fitness motivation with exercises, diet an clean nut
 
 ## Related Posts
 
-- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
-- [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
-- [perfect skin and body therapy flat tummy](https://fitness.allwomenstalk.com/want-to-have-perfect-abs-flat-stomach-infographics-that-will-change-your-life/)
-- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
-- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
 - [sexy body workouts](https://fitness.allwomenstalk.com/sexy-swan-ballerina-body-workouts/)
+- [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
+- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [gorgeous teen body](https://fitness.allwomenstalk.com/olympic-level-workouts-to-put-your-body-to-the-test/)
-- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
 - [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
+- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
+- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
+- [perfect skin and body therapy flat tummy](https://fitness.allwomenstalk.com/want-to-have-perfect-abs-flat-stomach-infographics-that-will-change-your-life/)
+- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
 - [8 Important Health and Fitness Goals for 2013 ...](https://weightloss.allwomenstalk.com/important-health-and-fitness-goals-for/)
 - [13 Fabulous Fitness Blogs to Follow Right Now ...](https://fitness.allwomenstalk.com/fabulous-fitness-blogs-to-follow-right-now/)
 

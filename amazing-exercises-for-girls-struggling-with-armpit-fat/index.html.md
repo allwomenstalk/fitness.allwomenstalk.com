@@ -42,15 +42,15 @@ I dare you to be brave and get moving starting today. There is nothing you canno
 
 ## Related Posts
 
-- [is inshape open on thanksgiving](https://weightloss.allwomenstalk.com/top-exercises-to-whip-you-back-in-shape-for-girls-who-put-on-weight-after-thanksgiving/)
-- [Girls Guide to a Perkier Butt and Tighter Thighs J...](https://fitness.allwomenstalk.com/girls-guide-to-a-perkier-butt-and-tighter-thighs-just-from-running/)
-- [bails workout](https://fitness.allwomenstalk.com/ask-yourself-these-questions-before-you-bail-on-a-workout/)
-- [which of the following is not one of the four pill...](https://fitness.allwomenstalk.com/workouts-to-shrink-the-waist-for-girls-who-hate-their-midsection/)
-- [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
-- [standing on head benefits](https://fitness.allwomenstalk.com/you-wont-believe-the-awesome-benefits-of-doing-a-headstand-everyday/)
-- [fat blasting workouts](https://fitness.allwomenstalk.com/sensational-fat-blasting-workouts-straight-from-boot-camp/)
 - [busy girl workouts](https://fitness.allwomenstalk.com/workouts-you-can-do-in-minute-for-super-busy-girls/)
+- [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
+- [bails workout](https://fitness.allwomenstalk.com/ask-yourself-these-questions-before-you-bail-on-a-workout/)
+- [is inshape open on thanksgiving](https://weightloss.allwomenstalk.com/top-exercises-to-whip-you-back-in-shape-for-girls-who-put-on-weight-after-thanksgiving/)
+- [standing on head benefits](https://fitness.allwomenstalk.com/you-wont-believe-the-awesome-benefits-of-doing-a-headstand-everyday/)
+- [Girls Guide to a Perkier Butt and Tighter Thighs J...](https://fitness.allwomenstalk.com/girls-guide-to-a-perkier-butt-and-tighter-thighs-just-from-running/)
+- [fat blasting workouts](https://fitness.allwomenstalk.com/sensational-fat-blasting-workouts-straight-from-boot-camp/)
 - [are ballerinas healthy](https://fitness.allwomenstalk.com/top-tips-from-professional-ballerinas-for-staying-in-shape/)
+- [which of the following is not one of the four pill...](https://fitness.allwomenstalk.com/workouts-to-shrink-the-waist-for-girls-who-hate-their-midsection/)
 - [gym fails videos](https://funny.allwomenstalk.com/hilarious-gym-fails-we-all-cant-help-but-laugh-at-and-maybe-relate-to/)
 - [7 Top Tips to Get Rid of Arm Fat ...](https://allwomenstalk.com/top-7-exercises-to-get-rid-of-arm-fat/)
 - [7 Best Exercise for Curvy Girls ...](https://health.allwomenstalk.com/best-exercise-for-curvy-girls/)

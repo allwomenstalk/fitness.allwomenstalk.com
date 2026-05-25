@@ -40,16 +40,16 @@ If you are a little body conscious, or are intimidated by the gym goers who look
 
 ## Related Posts
 
-- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
-- [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
-- [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
-- [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
-- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
-- [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
 - [Top I-dont-wanna-workout Excuses](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
-- [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
+- [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
 - [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
+- [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
 - [good body girls](https://fitness.allwomenstalk.com/fitness-inspo-for-girls-who-are-feeling-demotivated/)
+- [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
+- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
+- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
+- [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
+- [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 

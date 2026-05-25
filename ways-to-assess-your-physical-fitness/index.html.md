@@ -42,11 +42,11 @@ So now that you know the ways to assess your fitness level, are you ready for th
 
 ## Related Posts
 
-- [challenge yoga poses](https://fitness.allwomenstalk.com/yoga-poses-to-challenge-your-body/)
-- [28 Running Infographics to Motivate You out the Do...](https://running.allwomenstalk.com/running-infographics-to-motivate-you-out-the-door/)
 - [Heres How to Make Your Workout Feel like Its Flyin...](https://fitness.allwomenstalk.com/heres-how-to-make-your-workout-feel-like-its-flying-by/)
 - [Find Your Perfect Workout with These Timeless Tips...](https://fitness.allwomenstalk.com/find-your-perfect-workout-with-these-timeless-tips/)
+- [28 Running Infographics to Motivate You out the Do...](https://running.allwomenstalk.com/running-infographics-to-motivate-you-out-the-door/)
 - [select the correct answer. identify the place show...](https://running.allwomenstalk.com/steps-to-your-perfect-morning-run/)
+- [challenge yoga poses](https://fitness.allwomenstalk.com/yoga-poses-to-challenge-your-body/)
 - [best exercises for circulation](https://fitness.allwomenstalk.com/improve-your-circulation-with-these-intense-exercises/)
 - [Here Are the Hottest Ways for a Woman to Work out ...](https://fitness.allwomenstalk.com/here-are-the-hottest-ways-for-a-woman-to-work-out/)
 - [7 Ways to Find a Workout Buddy That Motivates You ...](https://fitness.allwomenstalk.com/ways-to-find-a-workout-buddy-that-motivates-you/)

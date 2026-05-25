@@ -50,16 +50,16 @@ Are you excited to whittle and tone your waist? Which of these moves is going to
 
 ## Related Posts
 
-- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
-- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
-- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
 - [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
-- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
-- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
 - [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
+- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
+- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
+- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
 - [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

@@ -44,16 +44,16 @@ Did you ever think that exercise might not be so good for you?
 
 ## Related Posts
 
-- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
-- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
-- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
-- [best exercises for saddlebags](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-saddlebags/)
-- [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
-- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
-- [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
 - [run without bra](https://fitness.allwomenstalk.com/dont-run-a-5k-without-these-things-in-your-bag/)
-- [how to get used to exercise](https://fitness.allwomenstalk.com/ways-to-get-used-to-exercising-in-the-a-m/)
+- [best exercises for saddlebags](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-saddlebags/)
+- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
 - [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
+- [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
+- [how to get used to exercise](https://fitness.allwomenstalk.com/ways-to-get-used-to-exercising-in-the-a-m/)
+- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
+- [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
+- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
+- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
 - [This is What Happens when You Binge Watch TV ...](https://movies.allwomenstalk.com/this-is-what-happens-when-you-binge-watch-tv/)
 - [This is What Happens to Your Brain when You Exerci...](https://fitness.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise/)
 

@@ -42,16 +42,16 @@ Which of these moves will you be adding to your routine today?
 
 ## Related Posts
 
+- [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
 - [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
 - [ultimate beach body workout](https://fitness.allwomenstalk.com/slimming-ways-to-detox-your-body-for-summer/)
-- [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
-- [7 week body transformation](https://fitness.allwomenstalk.com/weeks-to-your-best-body-yet/)
-- [superwoman exercise benefits](https://fitness.allwomenstalk.com/how-exercising-turns-a-normal-woman-into-superwoman/)
 - [best calf exercises for women](https://fitness.allwomenstalk.com/exercises-for-women-who-cant-stand-their-calves/)
+- [7 week body transformation](https://fitness.allwomenstalk.com/weeks-to-your-best-body-yet/)
+- [victorias secret jumper](https://fitness.allwomenstalk.com/victorias-secret-workout-tips-for-wannabe-angels/)
+- [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
 - [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
 - [lorna jane headbands](https://fashion.allwomenstalk.com/affordable-alternatives-to-designer-workout-gear/)
-- [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
-- [victorias secret jumper](https://fitness.allwomenstalk.com/victorias-secret-workout-tips-for-wannabe-angels/)
+- [superwoman exercise benefits](https://fitness.allwomenstalk.com/how-exercising-turns-a-normal-woman-into-superwoman/)
 - [7 Best Exercises to Tone Your Legs ...](https://allwomenstalk.com/7-best-exercises-to-tone-your-legs/)
 - [7 Exercises to Tone Your Legs ...](https://allwomenstalk.com/8-exercises-to-tone-your-legs/)
 

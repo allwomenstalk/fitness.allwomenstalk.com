@@ -42,16 +42,16 @@ These are just a few of the great pre-workout foods to choose from. Other popula
 
 ## Related Posts
 
-- [vigilant eats](https://food.allwomenstalk.com/new-gluten-free-products-to-try/)
 - [sexy produce](https://food.allwomenstalk.com/superfoods-that-make-you-sexy/)
-- [is yogurt vegan](https://food.allwomenstalk.com/vegan-yogurts-to-try/)
-- [cacao before workout](https://fitness.allwomenstalk.com/fabulous-foods-to-enhance-your-workouts/)
-- [what is the cleanest protein powder](https://fitness.allwomenstalk.com/clean-protein-powders-to-try/)
-- [italian grocery list](https://food.allwomenstalk.com/foods-that-should-always-be-on-your-grocery-list/)
-- [can toddlers eat magic spoon cereal](https://parenting.allwomenstalk.com/foods-to-feed-toddlers/)
-- [replace allergens](https://health.allwomenstalk.com/simple-substitutions-for-common-food-allergies/)
-- [artery cleansing food](https://health.allwomenstalk.com/brilliant-artery-cleansing-foods/)
 - [healthy food for fridge](https://food.allwomenstalk.com/foods-every-healthy-woman-must-have-in-her-fridge/)
+- [can toddlers eat magic spoon cereal](https://parenting.allwomenstalk.com/foods-to-feed-toddlers/)
+- [is yogurt vegan](https://food.allwomenstalk.com/vegan-yogurts-to-try/)
+- [italian grocery list](https://food.allwomenstalk.com/foods-that-should-always-be-on-your-grocery-list/)
+- [replace allergens](https://health.allwomenstalk.com/simple-substitutions-for-common-food-allergies/)
+- [what is the cleanest protein powder](https://fitness.allwomenstalk.com/clean-protein-powders-to-try/)
+- [artery cleansing food](https://health.allwomenstalk.com/brilliant-artery-cleansing-foods/)
+- [cacao before workout](https://fitness.allwomenstalk.com/fabulous-foods-to-enhance-your-workouts/)
+- [vigilant eats](https://food.allwomenstalk.com/new-gluten-free-products-to-try/)
 - [7 Healthiest Foods for Losing Weight ...](https://weightloss.allwomenstalk.com/healthiest-foods-for-losing-weight/)
 - [7 Great Pre-Workout Snacks ...](https://allwomenstalk.com/7-great-pre-workout-snacks/)
 

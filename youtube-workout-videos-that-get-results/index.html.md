@@ -34,16 +34,16 @@ So we’ve covered the tummy, the bum, and the legs, now all that’s left is th
 
 ## Related Posts
 
-- [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
-- [ways to make exercise fun](https://fitness.allwomenstalk.com/ways-to-make-exercise-fun/)
-- [new exercise dvds](https://fitness.allwomenstalk.com/unique-workout-videos/)
-- [lazy thigh workout](https://fitness.allwomenstalk.com/workout-infographics/)
-- [hobbies workout](https://health.allwomenstalk.com/hobbies-that-are-a-workout-for-your-brain/)
-- [worked out body](https://fitness.allwomenstalk.com/listen-to-your-body-to-find-the-perfect-time-to-work-out/)
 - [best workout from home programs](https://fitness.allwomenstalk.com/best-home-workout-programs/)
-- [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
-- [pole dancing artinya](https://fitness.allwomenstalk.com/ways-to-train-like-a-dancer/)
 - [exercise hacks](https://fitness.allwomenstalk.com/exercise-hacks-for-better-workouts-2/)
+- [worked out body](https://fitness.allwomenstalk.com/listen-to-your-body-to-find-the-perfect-time-to-work-out/)
+- [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
+- [ways to make exercise fun](https://fitness.allwomenstalk.com/ways-to-make-exercise-fun/)
+- [lazy thigh workout](https://fitness.allwomenstalk.com/workout-infographics/)
+- [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
+- [hobbies workout](https://health.allwomenstalk.com/hobbies-that-are-a-workout-for-your-brain/)
+- [new exercise dvds](https://fitness.allwomenstalk.com/unique-workout-videos/)
+- [pole dancing artinya](https://fitness.allwomenstalk.com/ways-to-train-like-a-dancer/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 - [8 Great Workout Videos ...](https://weightloss.allwomenstalk.com/great-workout-videos/)
 

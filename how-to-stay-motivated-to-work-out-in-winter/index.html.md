@@ -30,15 +30,15 @@ I know it’s hard to even think about working out in winter but it’s really g
 
 ## Related Posts
 
-- [how to enjoy winter when you hate it](https://lifestyle.allwomenstalk.com/ways-to-survive-winter/)
-- [foods to avoid dry skin](https://skincare.allwomenstalk.com/eat-these-foods-to-avoid-dry-winter-skin/)
-- [reasons to love winter](https://lifestyle.allwomenstalk.com/why-we-love-winter/)
-- [gif couple cuisine](https://love.allwomenstalk.com/fun-things-to-do-with-your-partner-in-winter/)
+- [things about autumn](https://lifestyle.allwomenstalk.com/the-best-things-about-autumn/)
 - [what to do for chapped nose](https://skincare.allwomenstalk.com/ways-to-deal-with-a-chapped-nose/)
 - [4 Ways to Prevent Getting a Cold ...](https://allwomenstalk.com/4-ways-to-prevent-getting-a-cold/)
-- [foods to keep you warm in winter](https://food.allwomenstalk.com/the-best-foods-to-keep-you-warm-on-cold-winter-nights/)
+- [foods to avoid dry skin](https://skincare.allwomenstalk.com/eat-these-foods-to-avoid-dry-winter-skin/)
+- [gif couple cuisine](https://love.allwomenstalk.com/fun-things-to-do-with-your-partner-in-winter/)
+- [reasons to love winter](https://lifestyle.allwomenstalk.com/why-we-love-winter/)
 - [6 Tips on Hand Skin Care in Winter ...](https://allwomenstalk.com/six-tips-on-hand-skin-care-in-winter/)
-- [things about autumn](https://lifestyle.allwomenstalk.com/the-best-things-about-autumn/)
+- [how to enjoy winter when you hate it](https://lifestyle.allwomenstalk.com/ways-to-survive-winter/)
+- [foods to keep you warm in winter](https://food.allwomenstalk.com/the-best-foods-to-keep-you-warm-on-cold-winter-nights/)
 - [3 Ways to Fight the Common Seasonal End of Winter ...](https://allwomenstalk.com/3-ways-to-fight-the-common-seasonal-end-of-winter-fatigue/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [10 Tips for an Effective Work-out ...](https://allwomenstalk.com/10-tips-for-an-effective-work-out/)

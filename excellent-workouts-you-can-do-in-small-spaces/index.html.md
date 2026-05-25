@@ -43,15 +43,15 @@ These are 7 workout options for small spaces. What ideas do you use to get your 
 ## Related Posts
 
 - [how to sculpt legs](https://fitness.allwomenstalk.com/workouts-to-slim-and-sculpt-your-legs/)
-- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
-- [10 fun moves to reshape your body with exercise ba...](https://fitness.allwomenstalk.com/the-fun-firm-up-these-gym-ball-exercises-will-get-you-fit/)
-- [cynoops](https://fitness.allwomenstalk.com/better-your-balance-with-these-elegant-exercises/)
-- [How to Tone Your Body for Back-to-School ...](https://fitness.allwomenstalk.com/how-to-tone-your-body-for-back-to-school/)
-- [arm flabs](https://fitness.allwomenstalk.com/you-can-forget-about-flab-with-these-arm-workouts/)
-- [exercise bra fat](https://fitness.allwomenstalk.com/these-exercises-will-help-you-say-bye-bye-to-back-fat-bra-bulge/)
-- [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
-- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
 - [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
+- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
+- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
+- [How to Tone Your Body for Back-to-School ...](https://fitness.allwomenstalk.com/how-to-tone-your-body-for-back-to-school/)
+- [10 fun moves to reshape your body with exercise ba...](https://fitness.allwomenstalk.com/the-fun-firm-up-these-gym-ball-exercises-will-get-you-fit/)
+- [exercise bra fat](https://fitness.allwomenstalk.com/these-exercises-will-help-you-say-bye-bye-to-back-fat-bra-bulge/)
+- [cynoops](https://fitness.allwomenstalk.com/better-your-balance-with-these-elegant-exercises/)
+- [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
+- [arm flabs](https://fitness.allwomenstalk.com/you-can-forget-about-flab-with-these-arm-workouts/)
 - [7 Unexpected Places to Sneak in a Workout ...](https://health.allwomenstalk.com/unexpected-places-to-sneak-in-a-workout/)
 - [7 Top Exercises That You Can do around the House ....](https://allwomenstalk.com/top-7-exercises-you-can-do-around-the-house/)
 

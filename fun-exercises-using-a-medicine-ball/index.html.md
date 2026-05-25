@@ -42,16 +42,16 @@ So now that you have a few great medicine ball exercises to break up the workout
 
 ## Related Posts
 
+- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
+- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
+- [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
+- [how to get more gym members](https://fitness.allwomenstalk.com/ways-to-get-more-from-your-gym-membership/)
 - [dont starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
 - [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
-- [best workout for quick results](https://fitness.allwomenstalk.com/simple-exercises-that-produce-great-results/)
-- [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
-- [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
-- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [how to get more gym members](https://fitness.allwomenstalk.com/ways-to-get-more-from-your-gym-membership/)
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
 - [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
-- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
+- [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
+- [best workout for quick results](https://fitness.allwomenstalk.com/simple-exercises-that-produce-great-results/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [7 Great Bosu Ball Exercises ...](https://allwomenstalk.com/7-great-bosu-ball-exercises/)
 

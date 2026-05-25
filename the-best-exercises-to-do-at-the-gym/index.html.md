@@ -49,14 +49,14 @@ Hey, we all did a million jumping jacks on the playground as kids, so why not ta
 
 ## Related Posts
 
+- [7 minute morning workout](https://fitness.allwomenstalk.com/7-minute-workout/)
 - [benefits of reformer](https://fitness.allwomenstalk.com/benefits-of-reformer-pilates/)
-- [5 Wonderful Reasons to Work out That Dont Involve ...](https://fitness.allwomenstalk.com/motivations-for-working-out-other-than-wanting-to-look-good/)
 - [15 Minute  Belly Blasting Dance Workout ...](https://fitness.allwomenstalk.com/15-minute-dance-workout/)
 - [workout smarter not harder](https://fitness.allwomenstalk.com/fitness-tips-that-will-make-you-work-out-smarter-not-harder/)
-- [8 Exercises You Can do without Getting out of Bed ...](https://fitness.allwomenstalk.com/exercises-you-can-do-without-getting-out-of-bed/)
-- [A Perfect HIIT Workout to Get You Fit for Summer ....](https://fitness.allwomenstalk.com/a-hiit-workout-to-get-you-fit-for-summer/)
 - [Perfect Ways to Avoid Workout Burnout ...](https://fitness.allwomenstalk.com/ways-to-avoid-workout-burnout/)
-- [7 minute morning workout](https://fitness.allwomenstalk.com/7-minute-workout/)
+- [5 Wonderful Reasons to Work out That Dont Involve ...](https://fitness.allwomenstalk.com/motivations-for-working-out-other-than-wanting-to-look-good/)
+- [A Perfect HIIT Workout to Get You Fit for Summer ....](https://fitness.allwomenstalk.com/a-hiit-workout-to-get-you-fit-for-summer/)
+- [8 Exercises You Can do without Getting out of Bed ...](https://fitness.allwomenstalk.com/exercises-you-can-do-without-getting-out-of-bed/)
 - [Perfect Ways to Keep Your Fitness Goals a Priority...](https://fitness.allwomenstalk.com/ways-to-keep-your-fitness-goals-a-priority/)
 - [gym buddy girl](https://fitness.allwomenstalk.com/how-to-use-the-fitness-buddy-system-most-effectively/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)

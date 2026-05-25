@@ -110,16 +110,16 @@ I loathe the gym - when did they become such meat markets?! - but I still need t
 
 ## Related Posts
 
-- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
-- [crossfit gif funny](https://funny.allwomenstalk.com/crossfit-fails-to-never-repeat/)
+- [30 day ab and arm challenge](https://fitness.allwomenstalk.com/try-the-day-abdominal-challenge/)
+- [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
 - [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
 - [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
-- [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
 - [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
-- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
-- [30 day ab and arm challenge](https://fitness.allwomenstalk.com/try-the-day-abdominal-challenge/)
-- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
 - [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
+- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
+- [crossfit gif funny](https://funny.allwomenstalk.com/crossfit-fails-to-never-repeat/)
+- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 - [10 Exercises You Can do at Home ...](https://fitene.com/10-exercises-you-can-do-at-home/)
 

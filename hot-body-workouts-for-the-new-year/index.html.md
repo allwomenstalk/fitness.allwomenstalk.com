@@ -43,15 +43,15 @@ So are you ready to get in your best shape for the New Year? Then make sure you 
 ## Related Posts
 
 - [7 Fun Fat Burning Workouts ...](https://fitness.allwomenstalk.com/fun-fat-burning-workouts/)
-- [Burn off Holiday Calories with These Foolproof Wor...](https://weightloss.allwomenstalk.com/workouts-to-burn-off-holiday-calories/)
-- [7 Ways to Sneak in Exercise ...](https://fitness.allwomenstalk.com/ways-to-sneak-in-exercise-2/)
-- [7 New Year New You Workouts ...](https://fitness.allwomenstalk.com/new-year-new-you-workouts/)
-- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
 - [how to tone flabby belly](https://fitness.allwomenstalk.com/exercises-to-tone-up-a-flabby-tummy/)
-- [7 Circuit Training Exercises You Can do at Home .....](https://fitness.allwomenstalk.com/circuit-training-exercises-you-can-do-at-home/)
 - [7 Exercises to Give You a Super Sexy Running Body ...](https://running.allwomenstalk.com/exercises-to-give-you-a-super-sexy-running-body/)
+- [7 New Year New You Workouts ...](https://fitness.allwomenstalk.com/new-year-new-you-workouts/)
 - [7 Holiday Fitness Tips to Say Yes to ...](https://fitness.allwomenstalk.com/holiday-fitness-tips-to-say-yes-to/)
+- [7 Ways to Sneak in Exercise ...](https://fitness.allwomenstalk.com/ways-to-sneak-in-exercise-2/)
+- [7 Circuit Training Exercises You Can do at Home .....](https://fitness.allwomenstalk.com/circuit-training-exercises-you-can-do-at-home/)
 - [7 Simple Tweaks for Better Workouts ...](https://fitness.allwomenstalk.com/simple-tweaks-for-better-workouts/)
+- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
+- [Burn off Holiday Calories with These Foolproof Wor...](https://weightloss.allwomenstalk.com/workouts-to-burn-off-holiday-calories/)
 - [7 Fun Exercise Routines to Adopt in 2012 ...](https://health.allwomenstalk.com/fun-exercise-routines-to-adopt-in/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

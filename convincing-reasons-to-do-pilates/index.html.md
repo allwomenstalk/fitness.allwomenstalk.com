@@ -42,15 +42,15 @@ So next time you’re looking for something new, give Pilates a try. They give y
 
 ## Related Posts
 
+- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
 - [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
+- [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
 - [pax lodge volunteer](https://travel.allwomenstalk.com/reasons-to-travel-to-one-of-the-many-girl-scout-lodges-around-the-world/)
 - [is scouts good for my son](https://parenting.allwomenstalk.com/reasons-your-son-should-be-a-boy-scout/)
-- [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
-- [shower then shave or vice versa](https://health.allwomenstalk.com/reasons-to-shower-instead-of-bathe/)
-- [bhutan customs](https://travel.allwomenstalk.com/reasons-to-visit-bhutan/)
-- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
-- [your boyfriend game shop](https://lifestyle.allwomenstalk.com/reasons-to-buy-a-ps4-for-your-boyfriend/)
 - [working out while on vacation](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)
+- [festival sober](https://music.allwomenstalk.com/reasons-to-stay-sober-at-music-festivals/)
+- [bhutan customs](https://travel.allwomenstalk.com/reasons-to-visit-bhutan/)
+- [your boyfriend game shop](https://lifestyle.allwomenstalk.com/reasons-to-buy-a-ps4-for-your-boyfriend/)
 - [why do people live in london](https://travel.allwomenstalk.com/reasons-you-should-live-in-london-at-least-once/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 - [7 Reasons to Say Yes to Yoga ...](https://allwomenstalk.com/7-reasons-to-say-yes-to-yoga/)

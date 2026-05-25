@@ -54,16 +54,16 @@ Yoga can help your body, but it can help your mind, as well. What other yoga pos
 
 ## Related Posts
 
-- [good things about monday](https://inspiration.allwomenstalk.com/things-successful-women-do-on-monday-mornings/)
-- [how to clean period stained underwear](https://lifestyle.allwomenstalk.com/every-woman-should-hear-about-these-period-stain-cleaning-hacks/)
-- [is it weird to like a girls story](https://love.allwomenstalk.com/short-story-girls-who-like-girls/)
-- [17 Struggles of Awkward Women Trying to Be Sexy .....](https://love.allwomenstalk.com/struggles-awkward-women-have-when-trying-to-be-sexy/)
-- [smart girl aesthetic](https://lifestyle.allwomenstalk.com/how-to-develop-your-writing-skills/)
-- [things all women should have](https://lifestyle.allwomenstalk.com/things-every-woman-should-have-on-point/)
-- [drunk story](https://lifestyle.allwomenstalk.com/a-short-story-about-girls-getting-drunk/)
+- [fit gorgeous girls](https://fitness.allwomenstalk.com/ways-fit-girls-have-more-fun-in-life/)
 - [choices untameable](https://inspiration.allwomenstalk.com/how-to-be-fabulous-and-untamable/)
 - [sexy guide](https://beauty.allwomenstalk.com/how-to-make-your-body-look-sexy-for-spring/)
-- [fit gorgeous girls](https://fitness.allwomenstalk.com/ways-fit-girls-have-more-fun-in-life/)
+- [drunk story](https://lifestyle.allwomenstalk.com/a-short-story-about-girls-getting-drunk/)
+- [is it weird to like a girls story](https://love.allwomenstalk.com/short-story-girls-who-like-girls/)
+- [good things about monday](https://inspiration.allwomenstalk.com/things-successful-women-do-on-monday-mornings/)
+- [things all women should have](https://lifestyle.allwomenstalk.com/things-every-woman-should-have-on-point/)
+- [smart girl aesthetic](https://lifestyle.allwomenstalk.com/how-to-develop-your-writing-skills/)
+- [17 Struggles of Awkward Women Trying to Be Sexy .....](https://love.allwomenstalk.com/struggles-awkward-women-have-when-trying-to-be-sexy/)
+- [how to clean period stained underwear](https://lifestyle.allwomenstalk.com/every-woman-should-hear-about-these-period-stain-cleaning-hacks/)
 - [10 Yoga Styles You Should Try ...](https://allwomenstalk.com/10-yoga-styles-you-should-try/)
 - [7 Great Yoga Poses to Relieve Menstrual Cramps ...](https://fitness.allwomenstalk.com/great-yoga-poses-to-relieve-menstrual-cramps/)
 

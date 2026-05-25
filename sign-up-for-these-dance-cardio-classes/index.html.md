@@ -42,16 +42,16 @@ Have you ever tried any of these classes? What other dance cardio classes would 
 
 ## Related Posts
 
-- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
-- [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
-- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
 - [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
-- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
-- [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
+- [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
 - [squat types](https://fitness.allwomenstalk.com/different-squat-variations-for-a-killer-derrier/)
 - [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
-- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
+- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
+- [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
+- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
 - [workout for long legs](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-tall-girls/)
+- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
+- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
 - [7 Best Calorie Burning Dance Moves ...](https://weightloss.allwomenstalk.com/best-calorie-burning-dance-moves/)
 - [8 Fun Ways to Get a Cardio Work-out ...](https://allwomenstalk.com/8-fun-ways-to-get-a-cardio-work-out/)
 

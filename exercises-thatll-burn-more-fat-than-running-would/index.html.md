@@ -54,16 +54,16 @@ Do you love or hate running? Will you try any of these fab workouts instead?
 
 ## Related Posts
 
-- [10 reasons that motivates you to do exercise](https://fitness.allwomenstalk.com/how-to-motivate-yourself-to-work-out-early-in-the-morn/)
-- [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
-- [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
-- [does rocking back and forth burn calories](https://fitness.allwomenstalk.com/these-exercises-will-burn-more-calories-than-you-can-believe/)
-- [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
 - [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
-- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
-- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
 - [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
+- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
+- [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
+- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
+- [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
 - [Watch a Hot Aussie Give a 5 Minute  Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
+- [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
+- [10 reasons that motivates you to do exercise](https://fitness.allwomenstalk.com/how-to-motivate-yourself-to-work-out-early-in-the-morn/)
+- [does rocking back and forth burn calories](https://fitness.allwomenstalk.com/these-exercises-will-burn-more-calories-than-you-can-believe/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [10 Ways to Burn Belly Fat ...](https://weightloss.allwomenstalk.com/ways-to-burn-belly-fat/)
 

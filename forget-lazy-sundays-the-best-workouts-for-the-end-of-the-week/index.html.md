@@ -42,16 +42,16 @@ These’re 7 workout ideas for the end of the week. Do you workout on Sundays? W
 
 ## Related Posts
 
-- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
-- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
-- [jaw contouring makeup](https://beauty.allwomenstalk.com/exercises-and-contouring-tips-to-make-your-jawline-defined/)
-- [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
 - [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
-- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
-- [desk bound job](https://fitness.allwomenstalk.com/ways-to-exercise-when-you-have-a-desk-bound-job/)
-- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
+- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
 - [simple trampoline](https://fitness.allwomenstalk.com/simple-safe-trampoline-workouts-that-anyone-do/)
+- [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
 - [insecure about arms](https://beauty.allwomenstalk.com/heres-how-to-hide-your-flabby-arms-no-weight-loss-required/)
+- [jaw contouring makeup](https://beauty.allwomenstalk.com/exercises-and-contouring-tips-to-make-your-jawline-defined/)
+- [desk bound job](https://fitness.allwomenstalk.com/ways-to-exercise-when-you-have-a-desk-bound-job/)
+- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
+- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
+- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
 - [7 Tips to Squeeze a Workout in ...](https://fitness.allwomenstalk.com/tips-to-squeeze-a-workout-in/)
 - [7 Fitness Tips for Great Weekend Workouts ...](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
 

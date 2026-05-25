@@ -96,16 +96,16 @@ What do you think of this beginner's sequence? Did you like it or hate it?
 
 ## Related Posts
 
-- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
-- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
 - [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
+- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
 - [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
 - [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
 - [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
-- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
 - [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
 - [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
+- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
 - [3 Rules for the Best Weight Loss Workout ...](https://allwomenstalk.com/3-step-approach-to-best-weight-loss-workouts/)
 - [7 Yoga Poses to Boost Your Metabolism ...](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
 

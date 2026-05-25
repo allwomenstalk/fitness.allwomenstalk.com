@@ -42,16 +42,16 @@ So if you are ready to get in shape and push your body to the next level, get up
 
 ## Related Posts
 
-- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
-- [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
-- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
 - [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
-- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
-- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
-- [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
-- [exercise bra fat](https://fitness.allwomenstalk.com/these-exercises-will-help-you-say-bye-bye-to-back-fat-bra-bulge/)
+- [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
 - [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
+- [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
+- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [exercise bra fat](https://fitness.allwomenstalk.com/these-exercises-will-help-you-say-bye-bye-to-back-fat-bra-bulge/)
+- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
+- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
+- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
 - [7 Things to do While Using the Elliptical or Tread...](https://allwomenstalk.com/7-things-to-do-while-using-the-elliptical-or-treadmill/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

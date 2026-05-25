@@ -42,16 +42,16 @@ With so many ideas in how you can better your body, take steps in the right dire
 
 ## Related Posts
 
-- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
-- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
-- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
-- [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
-- [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
-- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
-- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
-- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
-- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
 - [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
+- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
+- [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
+- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
+- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
+- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
+- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
+- [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
+- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
+- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
 - [7 Steps to Getting a Leaner Body This Summer ...](https://allwomenstalk.com/7-steps-to-getting-a-leaner-body-this-summer/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

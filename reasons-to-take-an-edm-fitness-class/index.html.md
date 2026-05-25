@@ -38,16 +38,16 @@ An EDM playlist put together by Billboard.com includes, Alesso, deadmau#5, and T
 
 ## Related Posts
 
-- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
 - [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
 - [7 Reasons Dance is Good for You ...](https://health.allwomenstalk.com/7-reasons-dance-is-good-for-you/)
 - [7 Reasons to Kick up Your Workout Routine You Cant...](https://health.allwomenstalk.com/reasons-to-kick-up-your-workout-routine-you-cant-ignore/)
 

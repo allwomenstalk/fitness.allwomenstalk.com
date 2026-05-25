@@ -68,16 +68,16 @@ Are you ready to find new motivation to get moving? Then do it! Today! Get Movin
 
 ## Related Posts
 
-- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
-- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
+- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
+- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
+- [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
 - [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
 - [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
-- [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
-- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
+- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
 - [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
 - [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
-- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
-- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
+- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
 - [7 Ways to Avoid Illness in the Gym ...](https://health.allwomenstalk.com/7-ways-to-avoid-illness-in-the-gym/)
 - [7 Ways to Get Back in the Gym ...](https://allwomenstalk.com/7-ways-to-get-back-in-the-gym/)
 

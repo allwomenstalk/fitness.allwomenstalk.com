@@ -36,16 +36,16 @@ Day five is going to take a lot out of you, so you get to enjoy two days of reco
 
 ## Related Posts
 
-- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
-- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
+- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
+- [need the gym](https://fitness.allwomenstalk.com/reasons-why-you-dont-need-the-gym-to-keep-fit/)
+- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
 - [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
+- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
+- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
 - [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
 - [benefits going gym](https://fitness.allwomenstalk.com/the-absolute-best-benefits-of-going-to-the-gym/)
-- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
-- [need the gym](https://fitness.allwomenstalk.com/reasons-why-you-dont-need-the-gym-to-keep-fit/)
-- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
 - [i cbf](https://fitness.allwomenstalk.com/things-to-do-when-you-cbf-to-work-out/)
-- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
+- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
 - [7 Step Training Schedule to Shed Those Pounds ...](https://health.allwomenstalk.com/step-training-schedule-to-shed-those-pounds/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)
 

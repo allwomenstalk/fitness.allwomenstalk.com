@@ -144,16 +144,16 @@ Source: [Pre-Turkey Workout](http://fromfltond.com/2012/11/21/pre-turkey-workout
 
 ## Related Posts
 
-- [cute workout wear](https://fitness.allwomenstalk.com/cute-workout-clothes-help-you-burn-more-calories-right/)
-- [fit girl workout routine](https://fitness.allwomenstalk.com/simple-modifications-that-boost-your-fitness-routine/)
-- [burning 300 calories a day](https://fitness.allwomenstalk.com/fab-fun-ways-to-burn-300-calories/)
-- [completebody gym](https://fitness.allwomenstalk.com/total-body-travel-workouts/)
-- [womens fitness programs](https://fitness.allwomenstalk.com/fitness-programs-for-women-with-highest-success-rates/)
 - [twin peaks busty](https://fitness.allwomenstalk.com/fitness-tips-for-busty-ladies/)
-- [workouts for girls](https://fitness.allwomenstalk.com/tough-workouts-thatll-give-you-amazing-results-within-weeks/)
-- [face exercise for girl](https://beauty.allwomenstalk.com/these-facial-exercise-will-make-your-face-more-beautiful/)
-- [total abs genius](https://fitness.allwomenstalk.com/abdominal-workouts-youve-never-heard-of-before/)
+- [completebody gym](https://fitness.allwomenstalk.com/total-body-travel-workouts/)
 - [safety tips for resistance bands](https://fitness.allwomenstalk.com/tips-and-tricks-for-using-resistance-bands-in-your-workout/)
+- [face exercise for girl](https://beauty.allwomenstalk.com/these-facial-exercise-will-make-your-face-more-beautiful/)
+- [burning 300 calories a day](https://fitness.allwomenstalk.com/fab-fun-ways-to-burn-300-calories/)
+- [workouts for girls](https://fitness.allwomenstalk.com/tough-workouts-thatll-give-you-amazing-results-within-weeks/)
+- [total abs genius](https://fitness.allwomenstalk.com/abdominal-workouts-youve-never-heard-of-before/)
+- [womens fitness programs](https://fitness.allwomenstalk.com/fitness-programs-for-women-with-highest-success-rates/)
+- [fit girl workout routine](https://fitness.allwomenstalk.com/simple-modifications-that-boost-your-fitness-routine/)
+- [cute workout wear](https://fitness.allwomenstalk.com/cute-workout-clothes-help-you-burn-more-calories-right/)
 - [7 Ways to Make the Treadmill More Fun ...](https://weightloss.allwomenstalk.com/7-ways-to-make-the-treadmill-more-fun/)
 - [7 Things to do While Using the Elliptical or Tread...](https://allwomenstalk.com/7-things-to-do-while-using-the-elliptical-or-treadmill/)
 

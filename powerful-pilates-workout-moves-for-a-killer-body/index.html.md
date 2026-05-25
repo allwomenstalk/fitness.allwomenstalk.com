@@ -54,16 +54,16 @@ With these tested pilates moves you can achieve the killer body you have always 
 
 ## Related Posts
 
-- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
-- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
-- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
-- [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
-- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
 - [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
+- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
+- [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
 - [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
 - [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
+- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
 - [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 

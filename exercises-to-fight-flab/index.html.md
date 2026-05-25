@@ -42,14 +42,14 @@ Hope you have enjoyed all these great fitness videos to help you to tone up, tri
 
 ## Related Posts
 
-- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
 - [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
 - [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
-- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
 - [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
+- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
 - [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
 - [dont starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
 - [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
 - [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)

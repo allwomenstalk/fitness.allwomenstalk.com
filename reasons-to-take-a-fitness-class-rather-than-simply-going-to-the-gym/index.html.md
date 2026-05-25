@@ -42,16 +42,16 @@ I hope these reasons to take a fitness class motivated you to try one. It is not
 
 ## Related Posts
 
-- [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
-- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
-- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
-- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
-- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
 - [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
-- [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
-- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
+- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
 - [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
+- [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
+- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
+- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
+- [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
+- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
 - [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
+- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
 - [10 Benefits of a Fitness Boot Camp ...](https://fitene.com/benefits-of-a-fitness-boot-camp/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 

@@ -42,16 +42,16 @@ So if you want a flat stomach, stop reading and get that body into motion ASAP! 
 
 ## Related Posts
 
-- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
-- [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
 - [ballerina thighs](https://fitness.allwomenstalk.com/insanely-effective-ballet-moves-for-girls-who-are-struggling-to-get-thinner-thighs/)
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
-- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
-- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
-- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
-- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
+- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
 - [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
+- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
+- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
+- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
 - [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
 - [31 Incredibly Genius Ways for Ladies to Get Killer...](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 

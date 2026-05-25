@@ -42,16 +42,16 @@ So now that you ladies have some great exercises that, by the way, should be sta
 
 ## Related Posts
 
+- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
+- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
 - [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
-- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
+- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
+- [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
+- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
+- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
 - [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
-- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
-- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
-- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
-- [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
-- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
-- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
+- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [8 Best Workouts for Women in Their 20s ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-20s/)
 

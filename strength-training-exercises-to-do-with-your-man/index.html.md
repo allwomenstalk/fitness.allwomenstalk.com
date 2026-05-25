@@ -50,16 +50,16 @@ So now that you are ready for a sweet sweat, invite your partner for a fun fitne
 
 ## Related Posts
 
-- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
-- [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
-- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
 - [november plank challenge](https://fitness.allwomenstalk.com/all-of-the-fitspo-you-need-for/)
-- [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
-- [perfect skin and body therapy flat tummy](https://fitness.allwomenstalk.com/want-to-have-perfect-abs-flat-stomach-infographics-that-will-change-your-life/)
+- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
 - [should i workout before a date](https://fitness.allwomenstalk.com/workouts-to-get-you-ready-for-your-next-date/)
-- [gorgeous teen body](https://fitness.allwomenstalk.com/olympic-level-workouts-to-put-your-body-to-the-test/)
-- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
+- [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
 - [sexy body workouts](https://fitness.allwomenstalk.com/sexy-swan-ballerina-body-workouts/)
+- [perfect skin and body therapy flat tummy](https://fitness.allwomenstalk.com/want-to-have-perfect-abs-flat-stomach-infographics-that-will-change-your-life/)
+- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
+- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
+- [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
+- [gorgeous teen body](https://fitness.allwomenstalk.com/olympic-level-workouts-to-put-your-body-to-the-test/)
 - [Exercises for Couples: 8 Amazingly Inspired Ways t...](https://health.allwomenstalk.com/exercises-for-couples-8-amazingly-inspired-ways-to-start-exercising-with-your-man/)
 - [7 Surprisingly Useful but Quite Simple Ways to Enc...](https://health.allwomenstalk.com/surprisingly-useful-but-quite-simple-ways-to-encourage-good-health-in-your-man/)
 

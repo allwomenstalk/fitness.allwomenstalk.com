@@ -101,16 +101,16 @@ Source: [Why Women Can't Afford To](http://www.bodybuilding.com?ref=allwomenstal
 
 ## Related Posts
 
-- [ab exercises for muffin top](https://fitness.allwomenstalk.com/flabby-to-fit-in-5-with-these-magical-5-minute-workouts/)
-- [zombies run on treadmill](https://apps.allwomenstalk.com/exercise-apps-thatll-make-your-treadmill-time-fly-by/)
-- [how many calories does 100 jumping jacks burn](https://fitness.allwomenstalk.com/take-ten-tone-with-one-of-these-quick-10-minute-workouts/)
 - [popsugar fitness 20 minute workout](https://fitness.allwomenstalk.com/everybodys-got-time-for-that-try-one-of-these-20-minute-workouts/)
-- [workout burnout](https://fitness.allwomenstalk.com/helpful-tricks-to-avoid-workout-burnout/)
-- [how to lose side fat exercises](https://fitness.allwomenstalk.com/loathe-your-love-handles-these-exercises-can-banish-them-for-good/)
-- [how to start biking for exercise](https://fitness.allwomenstalk.com/heres-how-to-get-started-with-a-biking-workout-routine/)
-- [an hour walk is how many steps](https://fitness.allwomenstalk.com/ways-to-walk-10000-steps-a-day/)
-- [post workout body spray](https://fitness.allwomenstalk.com/how-to-freshen-up-quickly-after-a-mid-day-workout/)
 - [ab line](https://fitness.allwomenstalk.com/tips-for-forming-v-line-abs/)
+- [an hour walk is how many steps](https://fitness.allwomenstalk.com/ways-to-walk-10000-steps-a-day/)
+- [zombies run on treadmill](https://apps.allwomenstalk.com/exercise-apps-thatll-make-your-treadmill-time-fly-by/)
+- [how to lose side fat exercises](https://fitness.allwomenstalk.com/loathe-your-love-handles-these-exercises-can-banish-them-for-good/)
+- [ab exercises for muffin top](https://fitness.allwomenstalk.com/flabby-to-fit-in-5-with-these-magical-5-minute-workouts/)
+- [post workout body spray](https://fitness.allwomenstalk.com/how-to-freshen-up-quickly-after-a-mid-day-workout/)
+- [how to start biking for exercise](https://fitness.allwomenstalk.com/heres-how-to-get-started-with-a-biking-workout-routine/)
+- [workout burnout](https://fitness.allwomenstalk.com/helpful-tricks-to-avoid-workout-burnout/)
+- [how many calories does 100 jumping jacks burn](https://fitness.allwomenstalk.com/take-ten-tone-with-one-of-these-quick-10-minute-workouts/)
 - [Drop Everything - Exercises Every Woman Should do ...](https://fitness.allwomenstalk.com/drop-everything-exercises-every-woman-should-do-right-now/)
 - [The Busty Girls Guide to Buying a Sports Bra ...](https://fitness.allwomenstalk.com/the-busty-girls-guide-to-buying-a-sports-bra/)
 

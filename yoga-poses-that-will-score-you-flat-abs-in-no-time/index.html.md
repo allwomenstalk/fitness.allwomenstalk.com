@@ -56,16 +56,16 @@ As you now know, yoga requires an immense amount of abdominal and core strength 
 
 ## Related Posts
 
-- [fun arm exercises](https://fitness.allwomenstalk.com/easy-and-fun-exercises-for-your-arms/)
 - [motivational workout clothes](https://fashion.allwomenstalk.com/inspirational-workout-shirts-to-keep-you-motivated/)
-- [8 ways to exercise on a busy schedule](https://fitness.allwomenstalk.com/ways-to-keep-fit-with-a-busy-schedule/)
-- [good fitness clothing brands](https://fitness.allwomenstalk.com/brands-of-workout-clothing-that-will-leave-you-looking-and-feeling-great/)
-- [best pre workout energy bar](https://food.allwomenstalk.com/pre-workout-energy-bar-recipes-thatll-help-you-power-through-your-workout/)
-- [krystal mcmahon](https://fitness.allwomenstalk.com/things-you-are-missing-out-on-by-not-working-out/)
-- [benefits of online fitness training](https://fitness.allwomenstalk.com/reasons-to-take-an-online-fitness-class/)
-- [how to pose for glutes](https://fitness.allwomenstalk.com/fantastic-yoga-poses-that-tone-your-butt/)
 - [bed yoga for couples](https://fitness.allwomenstalk.com/fall-fitness-tips-to-help-you-meet-your-goal/)
+- [benefits of online fitness training](https://fitness.allwomenstalk.com/reasons-to-take-an-online-fitness-class/)
+- [good fitness clothing brands](https://fitness.allwomenstalk.com/brands-of-workout-clothing-that-will-leave-you-looking-and-feeling-great/)
+- [8 ways to exercise on a busy schedule](https://fitness.allwomenstalk.com/ways-to-keep-fit-with-a-busy-schedule/)
+- [how to pose for glutes](https://fitness.allwomenstalk.com/fantastic-yoga-poses-that-tone-your-butt/)
+- [krystal mcmahon](https://fitness.allwomenstalk.com/things-you-are-missing-out-on-by-not-working-out/)
+- [best pre workout energy bar](https://food.allwomenstalk.com/pre-workout-energy-bar-recipes-thatll-help-you-power-through-your-workout/)
 - [most popular type of yoga](https://fitness.allwomenstalk.com/popular-types-of-yoga-and-how-to-find-out-which-one-is-best-for-you/)
+- [fun arm exercises](https://fitness.allwomenstalk.com/easy-and-fun-exercises-for-your-arms/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 

@@ -42,16 +42,16 @@ Now with all these super stretches, are you ready to start the day on the right 
 
 ## Related Posts
 
-- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
-- [how to get used to exercise](https://fitness.allwomenstalk.com/ways-to-get-used-to-exercising-in-the-a-m/)
 - [best exercises for saddlebags](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-saddlebags/)
-- [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
-- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
-- [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
-- [30 minute bodyweight workout](https://fitness.allwomenstalk.com/skip-the-gym-with-these-bodyweight-exercises-you-can-do-anywhere/)
+- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
 - [run without bra](https://fitness.allwomenstalk.com/dont-run-a-5k-without-these-things-in-your-bag/)
+- [how to get used to exercise](https://fitness.allwomenstalk.com/ways-to-get-used-to-exercising-in-the-a-m/)
+- [30 minute bodyweight workout](https://fitness.allwomenstalk.com/skip-the-gym-with-these-bodyweight-exercises-you-can-do-anywhere/)
 - [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
+- [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
 - [how to look taller naturally](https://fitness.allwomenstalk.com/exercises-thatll-help-you-look-taller/)
+- [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
+- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 - [7 Tips to Maintain Good Health ...](https://health.allwomenstalk.com/tips-to-maintain-good-health/)
 

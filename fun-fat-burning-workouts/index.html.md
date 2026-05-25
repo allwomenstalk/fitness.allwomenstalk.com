@@ -42,16 +42,16 @@ So I hope you have enjoyed this list of fun workouts and hope you will try them 
 
 ## Related Posts
 
-- [The Busy Girls Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
-- [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
+- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
+- [7 New Year New You Workouts ...](https://fitness.allwomenstalk.com/new-year-new-you-workouts/)
 - [7 Circuit Training Exercises You Can do at Home .....](https://fitness.allwomenstalk.com/circuit-training-exercises-you-can-do-at-home/)
 - [7 Simple Tweaks for Better Workouts ...](https://fitness.allwomenstalk.com/simple-tweaks-for-better-workouts/)
 - [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
-- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
-- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
 - [7 Ways to Sneak in Exercise ...](https://fitness.allwomenstalk.com/ways-to-sneak-in-exercise-2/)
-- [7 New Year New You Workouts ...](https://fitness.allwomenstalk.com/new-year-new-you-workouts/)
+- [The Busy Girls Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
 - [7 Exercises to Give You a Super Sexy Running Body ...](https://running.allwomenstalk.com/exercises-to-give-you-a-super-sexy-running-body/)
+- [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
+- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
 - [10 Top Fat Burning Exercises ...](https://allwomenstalk.com/top-10-fat-burning-exercises/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

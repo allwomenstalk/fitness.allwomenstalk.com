@@ -42,16 +42,16 @@ Now that you are aware of a few of the ways to get in shape walking, what are yo
 
 ## Related Posts
 
-- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
 - [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
-- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
 - [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
+- [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
+- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
+- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
 - [jennifer aniston fit](https://fitness.allwomenstalk.com/fitness-tips-from-jennifer-aniston/)
 - [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
+- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
 - [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
-- [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
 - [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
-- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

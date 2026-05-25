@@ -48,16 +48,16 @@ Instagram -
 
 ## Related Posts
 
-- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
-- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
-- [i cbf](https://fitness.allwomenstalk.com/things-to-do-when-you-cbf-to-work-out/)
-- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
-- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
 - [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
 - [need the gym](https://fitness.allwomenstalk.com/reasons-why-you-dont-need-the-gym-to-keep-fit/)
+- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
 - [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
+- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
+- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
+- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
 - [benefits going gym](https://fitness.allwomenstalk.com/the-absolute-best-benefits-of-going-to-the-gym/)
 - [good body girls](https://fitness.allwomenstalk.com/fitness-inspo-for-girls-who-are-feeling-demotivated/)
+- [i cbf](https://fitness.allwomenstalk.com/things-to-do-when-you-cbf-to-work-out/)
 - [8 Tips for Working out at Home ...](https://health.allwomenstalk.com/tips-for-working-out-at-home/)
 - [7 Top Exercises That You Can do around the House ....](https://allwomenstalk.com/top-7-exercises-you-can-do-around-the-house/)
 

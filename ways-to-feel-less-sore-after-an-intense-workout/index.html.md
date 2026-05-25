@@ -42,16 +42,16 @@ Do you get sore after you exercise? What do you do about it?
 
 ## Related Posts
 
-- [Inspiring Total Body Moves for the Fitness Obsesse...](https://fitness.allwomenstalk.com/total-body-moves-for-the-fitness-obsessed/)
-- [Tricks to Master  if Youre a Girl That Wants to Be...](https://fitness.allwomenstalk.com/tricks-to-master-if-you-want-to-be-fit/)
 - [How do I Burn More Calories during a Workout](https://fitene.com/switch-it-up-tips-for-burning-more-calories-at-the-gym/)
-- [what happens in your brain when you exercise](https://health.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise-2/)
-- [7 Ways for Slow Girls to Speed up Their Fitness Mo...](https://fitness.allwomenstalk.com/ways-to-speed-up-your-slow-mo-moves/)
 - [7 Days  7 Yoga Tutorials to Get You Started on You...](https://fitness.allwomenstalk.com/days-7-yoga-tutorials/)
-- [10 Yoga Moves to Help Girls Who Suffer from Chroni...](https://health.allwomenstalk.com/yoga-moves-for-girls-with-chronic-back-pain/)
 - [How to Start an Exercise Regime with Your Everyday...](https://weightloss.allwomenstalk.com/how-to-start-an-exercise-regime-with-your-everyday-routines/)
 - [lenation](https://fitness.allwomenstalk.com/fit-girls-will-love-these-creative-moves/)
+- [Inspiring Total Body Moves for the Fitness Obsesse...](https://fitness.allwomenstalk.com/total-body-moves-for-the-fitness-obsessed/)
+- [Tricks to Master  if Youre a Girl That Wants to Be...](https://fitness.allwomenstalk.com/tricks-to-master-if-you-want-to-be-fit/)
+- [what happens in your brain when you exercise](https://health.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise-2/)
+- [10 Yoga Moves to Help Girls Who Suffer from Chroni...](https://health.allwomenstalk.com/yoga-moves-for-girls-with-chronic-back-pain/)
 - [101 Fitness and Style Inspo Every Perfectionist Ne...](https://fitness.allwomenstalk.com/fitness-and-style-inspo-every-perfectionist-needs-to-see/)
+- [7 Ways for Slow Girls to Speed up Their Fitness Mo...](https://fitness.allwomenstalk.com/ways-to-speed-up-your-slow-mo-moves/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 - [9 Ways to Avoid Muscle Soreness after Exercise ...](https://health.allwomenstalk.com/ways-to-avoid-muscle-soreness-after-exercise/)
 

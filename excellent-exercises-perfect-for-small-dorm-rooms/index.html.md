@@ -42,16 +42,16 @@ College isn't an excuse not to exercise. While your food choices might be abysma
 
 ## Related Posts
 
-- [im too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
-- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
-- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
-- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
-- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
-- [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
-- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
-- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
 - [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
+- [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
+- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
 - [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
+- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
+- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
+- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
+- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
+- [im too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
+- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
 - [7 Unexpected Places to Sneak in a Workout ...](https://health.allwomenstalk.com/unexpected-places-to-sneak-in-a-workout/)
 - [8 Easy Exercises to do Anywhere ...](https://health.allwomenstalk.com/easy-exercises-to-do-anywhere/)
 

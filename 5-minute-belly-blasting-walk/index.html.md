@@ -27,16 +27,16 @@ Take five minutes of your day and watch that belly melt away!
 
 ## Related Posts
 
-- [best celebrity workout routines](https://fitness.allwomenstalk.com/10-minute-workouts-done-by-celebrities/)
-- [cute workout brands](https://fitness.allwomenstalk.com/fitness-brands-with-the-cutest-workout-gear/)
 - [booty exercises](https://fitness.allwomenstalk.com/exercises-to-tone-your-butt-while-you-watch-tv/)
-- [exercise burn most calories](https://fitness.allwomenstalk.com/exercises-that-burn-the-most-calories-2/)
-- [hip hop dance workout for beginners](https://fitness.allwomenstalk.com/hip-hop-tabata-workout/)
-- [perfect abs girl](https://fitness.allwomenstalk.com/the-most-effective-workouts-for-perfect-abs/)
+- [best celebrity workout routines](https://fitness.allwomenstalk.com/10-minute-workouts-done-by-celebrities/)
+- [dumbbell excercises](https://fitness.allwomenstalk.com/awesome-excercises-to-get-sleek-and-sexy-arms/)
+- [cute workout brands](https://fitness.allwomenstalk.com/fitness-brands-with-the-cutest-workout-gear/)
 - [workout channels youtube](https://fitness.allwomenstalk.com/best-youtube-workout-channels/)
 - [easiest ways to get abs](https://fitness.allwomenstalk.com/the-easiest-peasiest-way-to-get-abs-without-hitting-the-gym/)
+- [hip hop dance workout for beginners](https://fitness.allwomenstalk.com/hip-hop-tabata-workout/)
+- [perfect abs girl](https://fitness.allwomenstalk.com/the-most-effective-workouts-for-perfect-abs/)
+- [exercise burn most calories](https://fitness.allwomenstalk.com/exercises-that-burn-the-most-calories-2/)
 - [at home walking workout](https://fitness.allwomenstalk.com/mile-in-home-walking-workout-video/)
-- [dumbbell excercises](https://fitness.allwomenstalk.com/awesome-excercises-to-get-sleek-and-sexy-arms/)
 - [YouTube Videos for Your Best and Quickest Workout ...](https://fitness.allwomenstalk.com/youtube-videos-for-your-best-and-quickest-workout-ever/)
 - [Flabby to Fit in 5 with These Magical 5-minute Wor...](https://fitness.allwomenstalk.com/flabby-to-fit-in-5-with-these-magical-5-minute-workouts/)
 

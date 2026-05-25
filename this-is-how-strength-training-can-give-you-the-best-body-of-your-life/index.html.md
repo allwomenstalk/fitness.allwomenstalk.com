@@ -56,16 +56,16 @@ So ladies do not be afraid to lift. It can give you the killer body, help you fe
 
 ## Related Posts
 
-- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
-- [is roller derby a womens sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
-- [all womens talk](https://apps.allwomenstalk.com/reasons-to-join-allwomenstalks-write-and-earn-program/)
-- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
 - [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
+- [all womens talk](https://apps.allwomenstalk.com/reasons-to-join-allwomenstalks-write-and-earn-program/)
+- [is roller derby a womens sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
 - [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
+- [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
+- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
+- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
 - [why regifting is good](https://lifestyle.allwomenstalk.com/benefits-of-regifting/)
 - [millennial mother](https://parenting.allwomenstalk.com/reasons-why-being-a-millennial-mom-totally-rocks/)
-- [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
-- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
+- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 - [7 Reasons to Update Your Work-out ...](https://allwomenstalk.com/7-reasons-to-update-your-work-out/)
 

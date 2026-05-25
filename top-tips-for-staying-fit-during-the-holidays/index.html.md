@@ -37,15 +37,15 @@ It is important not to be too restrictive with yourself during the holidays, bec
 ## Related Posts
 
 - [nutrionalist](https://diet.allwomenstalk.com/nutrionalist-tips-on-how-to-avoid-festive-overindulgence/)
-- [Best Tips for Staying Healthy during Holiday Seaso...](https://health.allwomenstalk.com/best-tips-for-staying-healthy-during-holiday-season/)
-- [From Clothes to Dieting and Everything in between ...](https://lifestyle.allwomenstalk.com/from-clothes-to-dieting-and-everything-in-between-how-to-prepare-for-your-christmas-plans/)
-- [How You Can Change Your Diet to Help the Environme...](https://diet.allwomenstalk.com/how-you-can-change-your-diet-to-help-the-environment/)
-- [healthier pizza](https://food.allwomenstalk.com/ways-to-make-your-pizza-healthier/)
-- [The Best Ways to Improve Your Diet This Year ...](https://diet.allwomenstalk.com/the-best-ways-to-improve-your-diet-this-year/)
-- [Pro Tips to Detox Your Body after Christmas over-I...](https://health.allwomenstalk.com/pro-tips-to-detox-your-body-after-christmas-over-indulgence/)
 - [how to eat like an italian](https://travel.allwomenstalk.com/how-to-eat-like-a-local-when-youre-in-italy/)
-- [7 Easy Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/easy-health-hacks-to-improve-your-diet/)
+- [Pro Tips to Detox Your Body after Christmas over-I...](https://health.allwomenstalk.com/pro-tips-to-detox-your-body-after-christmas-over-indulgence/)
+- [How You Can Change Your Diet to Help the Environme...](https://diet.allwomenstalk.com/how-you-can-change-your-diet-to-help-the-environment/)
 - [Your Guide to Eating Better This Year ...](https://diet.allwomenstalk.com/your-guide-to-eating-better-this-year/)
+- [healthier pizza](https://food.allwomenstalk.com/ways-to-make-your-pizza-healthier/)
+- [Best Tips for Staying Healthy during Holiday Seaso...](https://health.allwomenstalk.com/best-tips-for-staying-healthy-during-holiday-season/)
+- [7 Easy Health Hacks to Improve Your Diet ...](https://diet.allwomenstalk.com/easy-health-hacks-to-improve-your-diet/)
+- [From Clothes to Dieting and Everything in between ...](https://lifestyle.allwomenstalk.com/from-clothes-to-dieting-and-everything-in-between-how-to-prepare-for-your-christmas-plans/)
+- [The Best Ways to Improve Your Diet This Year ...](https://diet.allwomenstalk.com/the-best-ways-to-improve-your-diet-this-year/)
 - [8 Unbelievably Great and Effective Weight Loss Tip...](https://weightloss.allwomenstalk.com/unbelievably-great-and-effective-weight-loss-tips-for-the-holiday-season/)
 - [10 Ways Not to Gain Weight during the Holiday Seas...](https://allwomenstalk.com/10-ways-not-to-gain-weight-during-the-holiday-season/)
 

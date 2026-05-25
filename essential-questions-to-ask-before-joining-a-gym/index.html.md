@@ -42,16 +42,16 @@ It may seem that there are a lot of questions to ask before signing up for a gym
 
 ## Related Posts
 
-- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
+- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
 - [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
-- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
-- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
 - [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
+- [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
+- [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
 - [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
 - [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
-- [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
-- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
-- [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
+- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
+- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
+- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
 - [8 Ways to Choose the Right Gym for You ...](https://weightloss.allwomenstalk.com/ways-to-choose-the-right-gym-for-you/)
 - [7 Ways to Start Lifting Weights ...](https://fitene.com/ways-to-start-lifting-weights/)
 

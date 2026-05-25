@@ -70,16 +70,16 @@ So rise, shine and get your sweat on for today so you can achieve your fitness a
 
 ## Related Posts
 
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
-- [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
-- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
-- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
 - [Watch a Hot Aussie Give a 5 Minute  Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
 - [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
 - [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
-- [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
+- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
+- [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
 - [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
+- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
+- [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
 - [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 

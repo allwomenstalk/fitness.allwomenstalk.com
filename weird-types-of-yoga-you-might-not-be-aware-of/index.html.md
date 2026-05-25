@@ -56,16 +56,16 @@ Some of these weird types of yoga might annoy yoga purists. However, they might 
 
 ## Related Posts
 
-- [7 undeniable benefits of kettlebell training](https://fitness.allwomenstalk.com/of-the-most-effective-exercises-to-transform-your-body/)
-- [healthy activities for teens](https://teen.allwomenstalk.com/healthy-activities-for-teens-trying-to-stay-in-shape/)
-- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
-- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
-- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
-- [treadmill challenges](https://weightloss.allwomenstalk.com/ways-to-challenge-your-body-while-on-the-treadmill/)
-- [yoga open hips](https://fitness.allwomenstalk.com/yoga-poses-to-open-up-your-hips-and-make-you-more-supple/)
-- [walking to get in shape](https://fitness.allwomenstalk.com/ways-to-get-in-shape-by-walking/)
 - [when you dont feel like working out](https://fitness.allwomenstalk.com/reasons-to-work-out-even-when-you-dont-feel-like-it/)
+- [walking to get in shape](https://fitness.allwomenstalk.com/ways-to-get-in-shape-by-walking/)
+- [treadmill challenges](https://weightloss.allwomenstalk.com/ways-to-challenge-your-body-while-on-the-treadmill/)
 - [rebecca louise 10 minute abs](https://fitness.allwomenstalk.com/xhit-workouts-worth-trying-out/)
+- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
+- [yoga open hips](https://fitness.allwomenstalk.com/yoga-poses-to-open-up-your-hips-and-make-you-more-supple/)
+- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
+- [healthy activities for teens](https://teen.allwomenstalk.com/healthy-activities-for-teens-trying-to-stay-in-shape/)
+- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
+- [7 undeniable benefits of kettlebell training](https://fitness.allwomenstalk.com/of-the-most-effective-exercises-to-transform-your-body/)
 - [8 Yoga Styles ...](https://allwomenstalk.com/8-yoga-styles/)
 - [7 Accessories for Doing Yoga ...](https://allwomenstalk.com/7-accessories-for-doing-yoga/)
 

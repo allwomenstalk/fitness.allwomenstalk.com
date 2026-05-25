@@ -42,16 +42,16 @@ So move over ballerinas because there is another set of toned legs in town! Yep 
 
 ## Related Posts
 
-- [do workout clothes make a difference](https://fitness.allwomenstalk.com/how-to-properly-care-for-your-workout-clothes-for-girls-needing-to-get-the-most-from-them/)
-- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
+- [pokemon fitness](https://fitness.allwomenstalk.com/pokemon-go-fitness-challenge-to-get-you-in-shape-in-days/)
 - [core secrets ball](https://fitness.allwomenstalk.com/how-to-use-stability-training-in-workouts-for-girls-who-want-nothing-but-a-killer-body/)
+- [girls workouts](https://fitness.allwomenstalk.com/quick-and-effective-workouts-for-girls-who-hate-exercise/)
+- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
+- [do workout clothes make a difference](https://fitness.allwomenstalk.com/how-to-properly-care-for-your-workout-clothes-for-girls-needing-to-get-the-most-from-them/)
+- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
+- [jiggle girl](https://fitness.allwomenstalk.com/7-days-of-arm-workoutsfor-girls-who-want-to-say-byeto-the-jiggle/)
+- [metabolic training for women](https://weightloss.allwomenstalk.com/metabolic-resistance-training-exercises-for-girls-who-want-to-supercharge-their-weight-loss/)
 - [work out pole](https://fitness.allwomenstalk.com/full-body-sculpting-pole-dancing-exercise-for-girls-who-feel-adventurous/)
 - [fitness basics](https://fitness.allwomenstalk.com/core-fitness-basics-for-girls-who-are-starting-to-train-and-lose-weight/)
-- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
-- [pokemon fitness](https://fitness.allwomenstalk.com/pokemon-go-fitness-challenge-to-get-you-in-shape-in-days/)
-- [metabolic training for women](https://weightloss.allwomenstalk.com/metabolic-resistance-training-exercises-for-girls-who-want-to-supercharge-their-weight-loss/)
-- [girls workouts](https://fitness.allwomenstalk.com/quick-and-effective-workouts-for-girls-who-hate-exercise/)
-- [jiggle girl](https://fitness.allwomenstalk.com/7-days-of-arm-workoutsfor-girls-who-want-to-say-byeto-the-jiggle/)
 - [7 Best Calorie Burning Dance Moves ...](https://weightloss.allwomenstalk.com/best-calorie-burning-dance-moves/)
 - [7 Effective Exercises for Thighs ...](https://health.allwomenstalk.com/effective-exercises-for-thighs/)
 

@@ -62,10 +62,10 @@ Now, all of you lazy ladies will be able to fit exercises into your daily routin
 - [10 Motivational Ways to Get Yourself to Exercise f...](https://fitene.com/motivational-ways-to-get-yourself-to-exercise-for-super-lazy-girls/)
 - [The Positive Effects of Exercise on Your Body afte...](https://fitness.allwomenstalk.com/how-does-your-life-change-after-one-week-of-exercise/)
 - [7 Steps to Having Your Most Successful Run Ever .....](https://running.allwomenstalk.com/follow-these-steps-for-your-best-run-yet/)
-- [Finding the Right Workout for Your Mood to Make Yo...](https://fitness.allwomenstalk.com/choose-your-workout-to-suit-your-mood-and-feel-amazing/)
 - [10 Workouts That Will Beat You up in a Good Way .....](https://fitness.allwomenstalk.com/workouts-that-wont-be-easy-on-you/)
-- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
 - [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
+- [Finding the Right Workout for Your Mood to Make Yo...](https://fitness.allwomenstalk.com/choose-your-workout-to-suit-your-mood-and-feel-amazing/)
+- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
 - [Ladies Take Some Action - Reduce Your Weight throu...](https://allwomenstalk.com/how-to-lose-weight-with-sports/)
 - [8 Best Workouts for Women in Their 30s ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-30s/)
 

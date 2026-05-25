@@ -45,16 +45,16 @@ So, what quotes do you use to get you through your grunt sessions? I want to hea
 
 ## Related Posts
 
-- [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
-- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
-- [quotes himym](https://inspiration.allwomenstalk.com/inspirational-quotes-from-how-i-met-your-mother/)
-- [ones dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
 - [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
+- [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
 - [dr seuss stand out quote](https://inspiration.allwomenstalk.com/insipiring-quotes-from-dr-seuss-to-live-by/)
+- [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
+- [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
+- [ones dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
+- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
 - [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
 - [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
-- [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
-- [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
+- [quotes himym](https://inspiration.allwomenstalk.com/inspirational-quotes-from-how-i-met-your-mother/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [30 Motivational Health and Exercise Quotes ...](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
 

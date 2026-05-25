@@ -142,16 +142,16 @@ Is cycling your thing? I love a good long bike ride, but I go for function rathe
 
 ## Related Posts
 
-- [popular vintage items](https://lifestyle.allwomenstalk.com/vintage-things-that-will-make-you-yearn-for-days-of-yore/)
 - [things for geeks](https://lifestyle.allwomenstalk.com/fun-things-for-geeks-to-drool-over/)
-- [online science websites](https://lifestyle.allwomenstalk.com/fun-science-websites-that-we-cant-get-enough-of/)
+- [scouting memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-scout-memorabilia-that-might-bring-back-memories/)
+- [popular vintage items](https://lifestyle.allwomenstalk.com/vintage-things-that-will-make-you-yearn-for-days-of-yore/)
+- [home roller coaster](https://lifestyle.allwomenstalk.com/so-awesome-potential-buyers-get-home-tour-on-a-roller-coaster/)
+- [what are some things that are purple](https://lifestyle.allwomenstalk.com/things-that-show-the-power-of-purple/)
 - [cool vintage toys](https://lifestyle.allwomenstalk.com/fun-vintage-toys-you-might-have-played-with/)
 - [how to get your adrenaline pumping](https://lifestyle.allwomenstalk.com/adrenaline-pumping-achievements-to-make-that-you-can-brag-about/)
-- [what are some things that are purple](https://lifestyle.allwomenstalk.com/things-that-show-the-power-of-purple/)
-- [home roller coaster](https://lifestyle.allwomenstalk.com/so-awesome-potential-buyers-get-home-tour-on-a-roller-coaster/)
-- [wall calendars 2015](https://funny.allwomenstalk.com/hilarious-calendars-you-need-in/)
 - [protect the enviroment](https://lifestyle.allwomenstalk.com/great-ways-of-using-technology-to-protect-nature/)
-- [scouting memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-scout-memorabilia-that-might-bring-back-memories/)
+- [wall calendars 2015](https://funny.allwomenstalk.com/hilarious-calendars-you-need-in/)
+- [online science websites](https://lifestyle.allwomenstalk.com/fun-science-websites-that-we-cant-get-enough-of/)
 - [10 Cool Posters to Spruce up Any Wall ...](https://allwomenstalk.com/10-cool-posters-to-spruce-up-any-wall/)
 - [9 Beautiful Travel Bags to Make ...](https://travel.allwomenstalk.com/beautiful-travel-bags-to-make/)
 

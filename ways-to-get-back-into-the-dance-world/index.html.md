@@ -50,16 +50,16 @@ Today, take the time to shake a little something. Groove to the beat. Leap acros
 
 ## Related Posts
 
-- [beautiful activity](https://inspiration.allwomenstalk.com/simple-activities-that-make-life-more-beautiful/)
-- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
+- [word for being happy for someone elses success](https://inspiration.allwomenstalk.com/simple-ways-to-bring-joy-to-others/)
 - [future enjoy love](https://money.allwomenstalk.com/ways-to-enjoy-life-today-while-saving-for-the-future/)
 - [pot of dreams](https://inspiration.allwomenstalk.com/steps-in-finding-that-pot-of-gold/)
-- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
-- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
-- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
-- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
 - [live the life to its fullest](https://lifestyle.allwomenstalk.com/rules-to-follow-to-live-life-to-the-fullest/)
-- [word for being happy for someone elses success](https://inspiration.allwomenstalk.com/simple-ways-to-bring-joy-to-others/)
+- [beautiful activity](https://inspiration.allwomenstalk.com/simple-activities-that-make-life-more-beautiful/)
+- [overcoming materialism](https://inspiration.allwomenstalk.com/steps-to-overcoming-materialism/)
+- [established redefining essentials](https://inspiration.allwomenstalk.com/essential-tips-for-redefining-yourself/)
+- [what to look forward to in life](https://inspiration.allwomenstalk.com/moments-to-look-forward-to-thatll-help-you-hold-on-for-another-year/)
+- [ways to get ahead in life](https://inspiration.allwomenstalk.com/ways-to-get-ahead-in-life/)
+- [beach bum florida](https://travel.allwomenstalk.com/ways-to-master-the-art-of-being-a-beach-bum/)
 - [10 Ways to Find More inside of You ...](https://lifestyle.allwomenstalk.com/ways-to-find-more-inside-of-you/)
 - [9 Ways to Beat the Winter Blues ...](https://lifestyle.allwomenstalk.com/ways-to-beat-the-winter-blues/)
 

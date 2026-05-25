@@ -42,16 +42,16 @@ Which one gives you the most energy? What other poses would you add to the list?
 
 ## Related Posts
 
-- [7 Reasons Women Get Called Sluts and Why It Needs ...](https://inspiration.allwomenstalk.com/reasons-women-get-called-sluts-and-why-it-needs-to-stop/)
-- [7 Kick-Ass Winning Habits for Girls Who Want to Tr...](https://inspiration.allwomenstalk.com/kick-ass-winning-habits-for-girls-who-want-to-triumph-in-life/)
-- [mixing friend groups](https://lifestyle.allwomenstalk.com/heres-how-you-can-combine-your-friend-groups/)
 - [that girl journal ideas](https://lifestyle.allwomenstalk.com/insanely-creative-first-page-ideas-for-girls-who-are-starting-a-journal/)
 - [stop obsessing over a girl](https://inspiration.allwomenstalk.com/surefire-tips-to-help-you-stop-obsessing-for-girls-who-need-to-get-their-minds-elsewhere/)
+- [7 Reasons Women Get Called Sluts and Why It Needs ...](https://inspiration.allwomenstalk.com/reasons-women-get-called-sluts-and-why-it-needs-to-stop/)
 - [irresistible feminine tattoos](https://beauty.allwomenstalk.com/secrets-to-being-super-seductive-and-irresistable-all-girls-need-to-know/)
-- [why dont my shins tan](https://beauty.allwomenstalk.com/heres-how-to-make-your-legs-look-stellar-with-a-self-tanner-glow/)
-- [ways to improve shyness](https://lifestyle.allwomenstalk.com/powerful-ways-to-overcome-shyness-for-girls-who-struggle/)
+- [7 Kick-Ass Winning Habits for Girls Who Want to Tr...](https://inspiration.allwomenstalk.com/kick-ass-winning-habits-for-girls-who-want-to-triumph-in-life/)
 - [lovedignity.com dirty talk](https://love.allwomenstalk.com/the-foolproof-guide-to-dirty-talk-for-girls-who-are-nervous-to-try/)
+- [why dont my shins tan](https://beauty.allwomenstalk.com/heres-how-to-make-your-legs-look-stellar-with-a-self-tanner-glow/)
 - [faux fashion blunder](https://fashion.allwomenstalk.com/everyday-fashion-blunder-fixes-all-girls-should-know/)
+- [ways to improve shyness](https://lifestyle.allwomenstalk.com/powerful-ways-to-overcome-shyness-for-girls-who-struggle/)
+- [mixing friend groups](https://lifestyle.allwomenstalk.com/heres-how-you-can-combine-your-friend-groups/)
 - [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 - [The Busy Girls Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
 

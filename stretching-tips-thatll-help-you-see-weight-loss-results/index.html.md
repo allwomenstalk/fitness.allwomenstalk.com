@@ -42,16 +42,16 @@ Do you stretch? Why or why not? Has this list convinced you to give it a try?
 
 ## Related Posts
 
-- [embrace your smile orthodontics](https://beauty.allwomenstalk.com/reasons-why-you-should-embrace-your-beautiful-braces/)
-- [reasons to have a website](https://lifestyle.allwomenstalk.com/reasons-why-you-should-start-your-own-website/)
-- [how can i become more social](https://lifestyle.allwomenstalk.com/reasons-to-be-more-social/)
-- [ishowstrength](https://fitness.allwomenstalk.com/this-is-how-strength-training-can-give-you-the-best-body-of-your-life/)
-- [i miss living alone](https://lifestyle.allwomenstalk.com/why-living-alone-makes-good-sense/)
-- [millennial mother](https://parenting.allwomenstalk.com/reasons-why-being-a-millennial-mom-totally-rocks/)
 - [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
+- [i miss living alone](https://lifestyle.allwomenstalk.com/why-living-alone-makes-good-sense/)
+- [reasons to have a website](https://lifestyle.allwomenstalk.com/reasons-why-you-should-start-your-own-website/)
 - [traveling librarian](https://lifestyle.allwomenstalk.com/reasons-to-take-a-trip-to-your-local-library/)
 - [hold hands quotes love](https://love.allwomenstalk.com/reasons-to-hold-hands-more/)
+- [ishowstrength](https://fitness.allwomenstalk.com/this-is-how-strength-training-can-give-you-the-best-body-of-your-life/)
+- [millennial mother](https://parenting.allwomenstalk.com/reasons-why-being-a-millennial-mom-totally-rocks/)
+- [how can i become more social](https://lifestyle.allwomenstalk.com/reasons-to-be-more-social/)
 - [sometimes you have to unplug yourself](https://lifestyle.allwomenstalk.com/reasons-you-need-to-get-out-of-town-every-so-often/)
+- [embrace your smile orthodontics](https://beauty.allwomenstalk.com/reasons-why-you-should-embrace-your-beautiful-braces/)
 - [7 Reasons Why a Warm up is Important ...](https://weightloss.allwomenstalk.com/7-reasons-why-a-warm-up-is-important/)
 - [The Truth about Stretching ...](https://allwomenstalk.com/the-truth-about-stretching/)
 

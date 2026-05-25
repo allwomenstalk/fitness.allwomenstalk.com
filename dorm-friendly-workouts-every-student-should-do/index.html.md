@@ -45,15 +45,15 @@ All I have is a yoga mat and an itsy bitsy corner of my dorm room dedicated to w
 ## Related Posts
 
 - [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
-- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
-- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
 - [hows that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
-- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
 - [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
-- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
 - [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
-- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
+- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
+- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
 - [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
+- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
+- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
 - [7 Unexpected Places to Sneak in a Workout ...](https://health.allwomenstalk.com/unexpected-places-to-sneak-in-a-workout/)
 - [10 Tips for an Effective Work-out ...](https://allwomenstalk.com/10-tips-for-an-effective-work-out/)
 

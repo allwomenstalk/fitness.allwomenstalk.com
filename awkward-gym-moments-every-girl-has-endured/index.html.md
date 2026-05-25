@@ -45,16 +45,16 @@ Sources:
 
 ## Related Posts
 
-- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
-- [single girl bucket list](https://lifestyle.allwomenstalk.com/a-realistic-bucket-list-for-college-girls/)
-- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
-- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
-- [why are girls always tired](https://funny.allwomenstalk.com/things-girls-who-are-always-tired-can-relate-to/)
-- [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
-- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
-- [what are a mans obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
 - [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
+- [why are girls always tired](https://funny.allwomenstalk.com/things-girls-who-are-always-tired-can-relate-to/)
+- [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
+- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
+- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
+- [single girl bucket list](https://lifestyle.allwomenstalk.com/a-realistic-bucket-list-for-college-girls/)
+- [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
+- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
 - [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
+- [what are a mans obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
 - [7 Extremely Common Fitness Mistakes Many Women Mak...](https://weightloss.allwomenstalk.com/fitness-mistakes-many-women-make/)
 - [7 Annoying Gym Habits and How to Avoid Them ...](https://fitene.com/annoying-gym-habits-and-how-to-avoid-them/)
 

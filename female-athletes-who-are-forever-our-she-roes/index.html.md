@@ -154,15 +154,15 @@ Granted, these women aren't perfect (who is?), but they'll always be my sports s
 
 ## Related Posts
 
-- [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
-- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
-- [taylor swifts squad](https://fashion.allwomenstalk.com/these-women-in-taylor-swifts-squad-may-be-the-ultimate-style-inspo/)
-- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
-- [best qualities in a woman](https://inspiration.allwomenstalk.com/the-qualities-that-make-a-woman-stand-out/)
-- [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
-- [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
 - [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
+- [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
+- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
+- [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
 - [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
+- [taylor swifts squad](https://fashion.allwomenstalk.com/these-women-in-taylor-swifts-squad-may-be-the-ultimate-style-inspo/)
+- [best qualities in a woman](https://inspiration.allwomenstalk.com/the-qualities-that-make-a-woman-stand-out/)
+- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
+- [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
 - [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
 - [25 Hottest Supermodels ...](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
 - [25 Hottest Female Celebrities under 25 ...](https://celebs.allwomenstalk.com/25-hottest-female-celebrities-under-25/)

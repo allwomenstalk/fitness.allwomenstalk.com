@@ -74,16 +74,16 @@ So with all my tips to get your heart pumping, how do you like to work out hard?
 
 ## Related Posts
 
-- [Finding the Right Workout for Your Mood to Make Yo...](https://fitness.allwomenstalk.com/choose-your-workout-to-suit-your-mood-and-feel-amazing/)
-- [10 Motivational Ways to Get Yourself to Exercise f...](https://fitene.com/motivational-ways-to-get-yourself-to-exercise-for-super-lazy-girls/)
+- [10 Yoga Moves to Help Girls Who Suffer from Chroni...](https://health.allwomenstalk.com/yoga-moves-for-girls-with-chronic-back-pain/)
 - [Health Stats for Those Who Need Extra Motivation t...](https://fitness.allwomenstalk.com/health-stats-for-those-who-need-extra-motivation-to-get-off-the-couch/)
 - [10 Tips for Girls Wanting to Start a Summer Run Ro...](https://running.allwomenstalk.com/tips-for-those-who-want-to-start-a-summertime-running-routine/)
 - [7 Genius Ways to Feel Less Sore after a Rough Work...](https://fitness.allwomenstalk.com/ways-to-feel-less-sore-after-an-intense-workout/)
-- [How to Start an Exercise Regime with Your Everyday...](https://weightloss.allwomenstalk.com/how-to-start-an-exercise-regime-with-your-everyday-routines/)
-- [How do I Burn More Calories during a Workout](https://fitene.com/switch-it-up-tips-for-burning-more-calories-at-the-gym/)
 - [what happens in your brain when you exercise](https://health.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise-2/)
-- [10 Yoga Moves to Help Girls Who Suffer from Chroni...](https://health.allwomenstalk.com/yoga-moves-for-girls-with-chronic-back-pain/)
+- [Finding the Right Workout for Your Mood to Make Yo...](https://fitness.allwomenstalk.com/choose-your-workout-to-suit-your-mood-and-feel-amazing/)
+- [How do I Burn More Calories during a Workout](https://fitene.com/switch-it-up-tips-for-burning-more-calories-at-the-gym/)
 - [Inspiring Total Body Moves for the Fitness Obsesse...](https://fitness.allwomenstalk.com/total-body-moves-for-the-fitness-obsessed/)
+- [10 Motivational Ways to Get Yourself to Exercise f...](https://fitene.com/motivational-ways-to-get-yourself-to-exercise-for-super-lazy-girls/)
+- [How to Start an Exercise Regime with Your Everyday...](https://weightloss.allwomenstalk.com/how-to-start-an-exercise-regime-with-your-everyday-routines/)
 - [Pro Tips to Power up Your Workouts and Burn More C...](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)
 - [Simple Ways to Lose Weight and Feel Good Naked ...](https://weightloss.allwomenstalk.com/ways-to-lose-weight-and-feel-good-naked/)
 

@@ -42,16 +42,16 @@ I like to think that a lot of this applies to life and your social circle as wel
 
 ## Related Posts
 
-- [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
-- [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
-- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
-- [loreal paris color riche le stylo smoky bottomless](https://inspiration.allwomenstalk.com/heres-how-to-be-more-spiritual-in-a-material-world/)
 - [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
 - [benchwarmers eating sunscreen](https://inspiration.allwomenstalk.com/ways-to-bring-control-to-your-life/)
+- [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
+- [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
 - [katie holmes upskirt](https://inspiration.allwomenstalk.com/what-you-should-do-differently-in/)
-- [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
-- [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
+- [loreal paris color riche le stylo smoky bottomless](https://inspiration.allwomenstalk.com/heres-how-to-be-more-spiritual-in-a-material-world/)
 - [how to stop slacking off at work](https://inspiration.allwomenstalk.com/how-to-stop-slacking-and-get-out-of-your-slump/)
+- [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
+- [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
 - [10 Ways to Find More inside of You ...](https://lifestyle.allwomenstalk.com/ways-to-find-more-inside-of-you/)
 - [3 Ways to Choose the Right Yoga Class ...](https://lifestyle.allwomenstalk.com/ways-to-choose-the-right-yoga-class/)
 

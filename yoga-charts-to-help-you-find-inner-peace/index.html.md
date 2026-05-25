@@ -116,16 +116,16 @@ If you never had the urge to do yoga before, I bet you do now! After all, it has
 
 ## Related Posts
 
-- [iceberg stress](https://health.allwomenstalk.com/how-to-stop-yourself-from-experiencing-iceberg-stress/)
 - [find your sanctuary](https://lifestyle.allwomenstalk.com/places-to-get-sanctuary-from-your-stressful-life/)
-- [letting go of negative energy](https://health.allwomenstalk.com/easy-ways-to-meditate-and-let-go-of-the-negative-energy/)
-- [cure for homesickness](https://lifestyle.allwomenstalk.com/comforting-things-thatll-cure-your-homesickness/)
-- [10 Tips to Take Care of You when Life Gets Too Cra...](https://health.allwomenstalk.com/tips-for-taking-care-of-yourself-when-life-gets-crazy/)
-- [lifehackable](https://lifestyle.allwomenstalk.com/awesome-current-hacks-thatll-make-your-life-stress-free/)
-- [crazy life quotes](https://inspiration.allwomenstalk.com/how-to-handle-unexpected-changes-in-your-life/)
-- [bengal spice tea weight loss](https://health.allwomenstalk.com/herbal-teas-for-people-who-feel-constantly-stressed/)
+- [iceberg stress](https://health.allwomenstalk.com/how-to-stop-yourself-from-experiencing-iceberg-stress/)
 - [50 ways to reduce stress](https://health.allwomenstalk.com/ways-to-reduce-stress-and-relax/)
+- [10 Tips to Take Care of You when Life Gets Too Cra...](https://health.allwomenstalk.com/tips-for-taking-care-of-yourself-when-life-gets-crazy/)
 - [depressed on holiday](https://inspiration.allwomenstalk.com/how-to-stop-being-so-depressed-around-the-holidays/)
+- [cure for homesickness](https://lifestyle.allwomenstalk.com/comforting-things-thatll-cure-your-homesickness/)
+- [letting go of negative energy](https://health.allwomenstalk.com/easy-ways-to-meditate-and-let-go-of-the-negative-energy/)
+- [lifehackable](https://lifestyle.allwomenstalk.com/awesome-current-hacks-thatll-make-your-life-stress-free/)
+- [bengal spice tea weight loss](https://health.allwomenstalk.com/herbal-teas-for-people-who-feel-constantly-stressed/)
+- [crazy life quotes](https://inspiration.allwomenstalk.com/how-to-handle-unexpected-changes-in-your-life/)
 - [7 Yoga Poses to Help You Sleep ...](https://allwomenstalk.com/7-yoga-poses-to-help-you-sleep/)
 - [8 Ideas to Help You Meditate ...](https://health.allwomenstalk.com/ideas-to-help-you-meditate/)
 

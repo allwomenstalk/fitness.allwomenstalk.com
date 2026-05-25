@@ -43,15 +43,15 @@ With so many tips to help you find time to exercise, there is no way for an excu
 ## Related Posts
 
 - [get a degree without going to university](https://money.allwomenstalk.com/ways-to-get-a-degree-without-going-broke/)
-- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
 - [biggest college radio stations](https://music.allwomenstalk.com/of-the-hottest-college-radio-stations/)
-- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
 - [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
-- [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
-- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
-- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
-- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
 - [biggest mistakes college students](https://lifestyle.allwomenstalk.com/mistakes-college-students-make-and-why-you-should-avoid-them/)
+- [essentials for high school](https://parenting.allwomenstalk.com/back-to-school-essentials-for-students-starting-junior-high/)
+- [college freshman vs senior](https://funny.allwomenstalk.com/major-differences-between-freshman-and-seniors/)
+- [easy things to go to school for](https://lifestyle.allwomenstalk.com/alternative-things-to-do-instead-of-going-to-college/)
+- [new educational thoughts](https://teen.allwomenstalk.com/education-quotes-that-will-motivate-you-for-the-new-school-year/)
+- [websites you need for school](https://teen.allwomenstalk.com/helpful-websites-you-need-to-make-it-through-the-school-year/)
+- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
 - [7 Ways to Stick to an Exercise Schedule ...](https://weightloss.allwomenstalk.com/7-ways-to-stick-to-an-exercise-schedule/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 

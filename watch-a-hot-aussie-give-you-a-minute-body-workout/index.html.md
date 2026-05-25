@@ -16,14 +16,14 @@ It doesn't matter how tired or busy you are, because this workout will only take
 
 ## Related Posts
 
-- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
-- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
 - [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
-- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
 - [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
+- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
+- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
 - [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
 - [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
 - [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
 - [YouTube Videos for Your Best and Quickest Workout ...](https://fitness.allwomenstalk.com/youtube-videos-for-your-best-and-quickest-workout-ever/)

@@ -54,16 +54,16 @@ If you do these workouts often enough, you'll feel even sexier than your favorit
 
 ## Related Posts
 
-- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
 - [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
+- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
+- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
+- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
+- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
+- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
 - [pictures of hollywood actors](https://movies.allwomenstalk.com/hottest-hollywood-actors-of-all-time/)
 - [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
-- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
-- [20 under 20](https://teen.allwomenstalk.com/most-influential-people-under-20/)
-- [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
-- [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
 - [7 Unique Ways to Get Fit ...](https://weightloss.allwomenstalk.com/unique-ways-to-get-fit/)
 - [7 Healthy Ways to Lose Weight like the Celebrities...](https://weightloss.allwomenstalk.com/healthy-ways-to-lose-weight-like-the-celebrities/)
 

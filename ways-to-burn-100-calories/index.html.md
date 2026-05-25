@@ -212,15 +212,15 @@ There are so many **ways to burn 100 calories**. I've pulled together a variety 
 
 ## Related Posts
 
-- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
-- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
-- [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
-- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
 - [best workouts for stress relief](https://fitness.allwomenstalk.com/workouts-thatll-relax-your-mind-and-body/)
-- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
-- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
 - [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
+- [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
+- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
+- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
 - [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
+- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
+- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
+- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
 - [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
 - [Pro Tips to Power up Your Workouts and Burn More C...](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)
 - [Water Sports That Blast Mega Calories for Your Sum...](https://fitness.allwomenstalk.com/water-sports-that-will-blast-mega-calories/)

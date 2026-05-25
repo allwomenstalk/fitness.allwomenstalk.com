@@ -42,16 +42,16 @@ So enjoy the great outdoors as you exercise in the winter wonderland around you.
 
 ## Related Posts
 
-- [how to enjoy winter when you hate it](https://lifestyle.allwomenstalk.com/ways-to-survive-winter/)
-- [yummy gif ace ventura](https://food.allwomenstalk.com/foods-you-should-never-eat-in-winter/)
-- [reasons to love winter](https://lifestyle.allwomenstalk.com/why-we-love-winter/)
-- [light appetizer soups](https://food.allwomenstalk.com/light-soup-recipes-that-are-perfect-for-spring/)
 - [things about autumn](https://lifestyle.allwomenstalk.com/the-best-things-about-autumn/)
 - [what to do for chapped nose](https://skincare.allwomenstalk.com/ways-to-deal-with-a-chapped-nose/)
-- [best time to eat orange for weight gain](https://food.allwomenstalk.com/foods-to-prevent-weight-gain/)
-- [motivation to exercise in winter](https://fitness.allwomenstalk.com/how-to-stay-motivated-to-work-out-in-winter/)
-- [10 ways to beat the winter blues](https://health.allwomenstalk.com/tricks-for-beating-the-winter-blues/)
 - [gif couple cuisine](https://love.allwomenstalk.com/fun-things-to-do-with-your-partner-in-winter/)
+- [reasons to love winter](https://lifestyle.allwomenstalk.com/why-we-love-winter/)
+- [how to enjoy winter when you hate it](https://lifestyle.allwomenstalk.com/ways-to-survive-winter/)
+- [motivation to exercise in winter](https://fitness.allwomenstalk.com/how-to-stay-motivated-to-work-out-in-winter/)
+- [best time to eat orange for weight gain](https://food.allwomenstalk.com/foods-to-prevent-weight-gain/)
+- [10 ways to beat the winter blues](https://health.allwomenstalk.com/tricks-for-beating-the-winter-blues/)
+- [light appetizer soups](https://food.allwomenstalk.com/light-soup-recipes-that-are-perfect-for-spring/)
+- [yummy gif ace ventura](https://food.allwomenstalk.com/foods-you-should-never-eat-in-winter/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 - [7 Wonderful Tips for Staying in Shape This Winter ...](https://weightloss.allwomenstalk.com/wonderful-tips-for-staying-in-shape-this-winter/)
 

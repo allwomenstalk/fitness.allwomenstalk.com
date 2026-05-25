@@ -36,14 +36,14 @@ It is human nature to be more alert and enthusiastic when you are doing an activ
 
 ## Related Posts
 
+- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
 - [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
 - [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
-- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
 - [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
-- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
-- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
 - [benefits going gym](https://fitness.allwomenstalk.com/the-absolute-best-benefits-of-going-to-the-gym/)
-- [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
+- [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
+- [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
+- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
 - [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
 - [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
 - [7 Helpful Tips for Getting into an Exercise Routin...](https://health.allwomenstalk.com/7-helpful-tips-for-getting-into-an-exercise-routine/)

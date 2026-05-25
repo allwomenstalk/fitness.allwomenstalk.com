@@ -42,16 +42,16 @@ Where do you shop for workout clothes? Give me some new ideas in the comments!
 
 ## Related Posts
 
-- [the kardashian kollection](https://fashion.allwomenstalk.com/the-cutest-pieces-from-the-kardashian-kollection-of-clothing/)
-- [skater girl outfits](https://fashion.allwomenstalk.com/get-on-board-with-these-skater-girl-looks/)
 - [christian womens clothing](https://fashion.allwomenstalk.com/holy-chic-the-best-online-christian-fashion-stores/)
-- [sailor trend](https://fashion.allwomenstalk.com/hello-sailor-make-waves-in-these-nautical-looks/)
+- [vintage clothes ideas](https://fashion.allwomenstalk.com/boho-outfit-ideas-for-the-flower-child-in-you/)
+- [the kardashian kollection](https://fashion.allwomenstalk.com/the-cutest-pieces-from-the-kardashian-kollection-of-clothing/)
 - [abercrombie and fitch](https://fashion.allwomenstalk.com/the-best-clothing-stores-for-young-adults/)
+- [prepoy clothes](https://fashion.allwomenstalk.com/the-best-websites-for-buying-preppy-outfits/)
+- [skater girl outfits](https://fashion.allwomenstalk.com/get-on-board-with-these-skater-girl-looks/)
 - [pastel color pants](https://fashion.allwomenstalk.com/pastel-pants-thatll-complete-your-spring-wardrobe/)
 - [white mini skirt outfit ideas](https://fashion.allwomenstalk.com/fun-mini-skirts-for-spring/)
-- [vintage clothes ideas](https://fashion.allwomenstalk.com/boho-outfit-ideas-for-the-flower-child-in-you/)
 - [affordable online shopping sites](https://fashion.allwomenstalk.com/affordable-online-stores-that-have-everything-you-need-for-spring/)
-- [prepoy clothes](https://fashion.allwomenstalk.com/the-best-websites-for-buying-preppy-outfits/)
+- [sailor trend](https://fashion.allwomenstalk.com/hello-sailor-make-waves-in-these-nautical-looks/)
 - [Spring Shopping for Jeans Tops and More Fun Stuff ...](https://allwomenstalk.com/spring-shopping-for-jeans-tops-and-more-fun-stuff/)
 - [Overhauling Your Wardrobe These Stores Have All th...](https://fashion.allwomenstalk.com/websites-to-find-basics-if-youre-looking-to-overhaul-your-wardrobe/)
 

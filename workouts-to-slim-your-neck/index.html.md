@@ -42,15 +42,15 @@ If you're going to work out your body, you shouldn't neglect your neck. It deser
 
 ## Related Posts
 
-- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
-- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
-- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
-- [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
 - [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
-- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
-- [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
-- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
 - [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
+- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
+- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
+- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
+- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
+- [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
+- [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
+- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
 - [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
 - [12 Ways to Get Rid of Neck Fat Fast ...](https://allwomenstalk.com/12-ways-to-get-rid-of-neck-fat-fast/)
 - [7 Great Exercises to Tone Your Arms ...](https://allwomenstalk.com/7-great-exercises-to-tone-your-arms/)

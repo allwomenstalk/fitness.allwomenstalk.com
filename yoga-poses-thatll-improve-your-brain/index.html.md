@@ -42,16 +42,16 @@ Yoga is good for your mind, body, and soul. That's why you should set aside time
 
 ## Related Posts
 
-- [The 15-Minute  Workout Video for Complete Beginner...](https://fitness.allwomenstalk.com/the-15-minute-workout-video-for-complete-beginners/)
-- [eco fitness gym](https://fitness.allwomenstalk.com/this-is-how-to-have-an-eco-friendly-workout/)
-- [Work out Your Entire Body with This One Move ...](https://fitness.allwomenstalk.com/work-out-your-entire-body-with-this-one-move/)
-- [things to think about while running](https://running.allwomenstalk.com/productive-things-to-think-about-during-your-run-time/)
-- [How to Fit in Exercise when Youre Busier than Ever...](https://fitness.allwomenstalk.com/how-to-fit-in-exercise-when-youre-busier-than-ever/)
 - [7 Fitness Resolutions That Are Actually Doable for...](https://fitness.allwomenstalk.com/fitness-resolutions-that-are-actually-doable-for-any-age/)
-- [leg warmers gym](https://fitness.allwomenstalk.com/fitness-goals-for-the-year/)
 - [Workout Gear That Will Help You Stick to Your New ...](https://fitness.allwomenstalk.com/workout-gear-that-will-help-you-stick-to-your-new-years-resolutions/)
-- [will resistance bands help lose weight](https://fitness.allwomenstalk.com/how-resistance-bands-can-help-you-get-fit-faster/)
+- [things to think about while running](https://running.allwomenstalk.com/productive-things-to-think-about-during-your-run-time/)
+- [leg warmers gym](https://fitness.allwomenstalk.com/fitness-goals-for-the-year/)
+- [How to Fit in Exercise when Youre Busier than Ever...](https://fitness.allwomenstalk.com/how-to-fit-in-exercise-when-youre-busier-than-ever/)
 - [7 Ways Strength Training Can Help You during a Run...](https://fitness.allwomenstalk.com/ways-strength-training-can-help-you-during-a-run/)
+- [will resistance bands help lose weight](https://fitness.allwomenstalk.com/how-resistance-bands-can-help-you-get-fit-faster/)
+- [Work out Your Entire Body with This One Move ...](https://fitness.allwomenstalk.com/work-out-your-entire-body-with-this-one-move/)
+- [eco fitness gym](https://fitness.allwomenstalk.com/this-is-how-to-have-an-eco-friendly-workout/)
+- [The 15-Minute  Workout Video for Complete Beginner...](https://fitness.allwomenstalk.com/the-15-minute-workout-video-for-complete-beginners/)
 - [7 Yoga Poses to Help You Sleep ...](https://allwomenstalk.com/7-yoga-poses-to-help-you-sleep/)
 - [7 Principles of Yoga That Can Make You a Better Pe...](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
 

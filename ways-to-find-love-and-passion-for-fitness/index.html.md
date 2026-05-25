@@ -42,16 +42,16 @@ So are you ready to find your inner fitness passion? Then get moving to find the
 
 ## Related Posts
 
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
-- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
-- [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
 - [im too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
-- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
 - [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
+- [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
 - [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
-- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
+- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
 - [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
+- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)
 

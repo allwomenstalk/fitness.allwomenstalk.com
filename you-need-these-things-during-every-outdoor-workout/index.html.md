@@ -56,16 +56,16 @@ What do you take along for an outdoor workout? What’s your favorite way to exe
 
 ## Related Posts
 
-- [how to get fitter running](https://running.allwomenstalk.com/how-to-get-fit-without-running-long-distance/)
-- [New Ways You Can Learn to Love Your Workout ...](https://fitness.allwomenstalk.com/new-ways-you-can-learn-to-love-your-workout/)
 - [How to Get the Most out of Having a Personal Train...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-having-a-personal-trainer/)
+- [How to Work out when You Have an Injury ...](https://fitness.allwomenstalk.com/how-to-work-out-when-you-have-an-injury/)
 - [10 min ab sculpting workout](https://fitness.allwomenstalk.com/the-one-video-thatll-give-you-flat-abs/)
 - [get fit](https://fitness.allwomenstalk.com/how-to-get-fit-in-nyc/)
+- [how to get fitter running](https://running.allwomenstalk.com/how-to-get-fit-without-running-long-distance/)
+- [7 Ways to Create a Workout Youll Love ...](https://fitness.allwomenstalk.com/ways-to-create-a-workout-youll-love/)
+- [meerkat full body](https://fitness.allwomenstalk.com/why-you-should-all-work-out-with-me-on-meerkat/)
 - [benefits of being competitive](https://fitness.allwomenstalk.com/the-perks-of-being-competitive-when-it-comes-to-working-out/)
 - [The Benefits of Having a Personal Trainer ...](https://fitness.allwomenstalk.com/the-benefits-of-having-a-personal-trainer/)
-- [How to Work out when You Have an Injury ...](https://fitness.allwomenstalk.com/how-to-work-out-when-you-have-an-injury/)
-- [meerkat full body](https://fitness.allwomenstalk.com/why-you-should-all-work-out-with-me-on-meerkat/)
-- [7 Ways to Create a Workout Youll Love ...](https://fitness.allwomenstalk.com/ways-to-create-a-workout-youll-love/)
+- [New Ways You Can Learn to Love Your Workout ...](https://fitness.allwomenstalk.com/new-ways-you-can-learn-to-love-your-workout/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 - [7 Wonderful Ways to Amp up Your Workout ...](https://weightloss.allwomenstalk.com/wonderful-ways-to-amp-up-your-workout/)
 

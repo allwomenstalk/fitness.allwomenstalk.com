@@ -74,16 +74,16 @@ There you have it! Some important ways in which you can change your body composi
 
 ## Related Posts
 
-- [scared to date](https://love.allwomenstalk.com/why-you-shouldnt-be-scared-to-eat-what-you-want-on-a-first-date/)
+- [lose last 10 pounds](https://weightloss.allwomenstalk.com/why-those-last-pounds-are-the-hardest-to-lose/)
+- [new relationship weight gain](https://love.allwomenstalk.com/why-you-gain-more-weight-when-you-have-a-boyfriend/)
+- [choose your belly](https://weightloss.allwomenstalk.com/unexpected-things-that-keep-your-belly-flabby/)
 - [why is dairy bad for you when trying to lose weigh...](https://diet.allwomenstalk.com/important-reasons-to-avoid-dairy-when-youre-trying-to-lose-weight/)
+- [highest sugar fruits](https://weightloss.allwomenstalk.com/insanely-high-in-sugar-fruits-all-slimming-girls-should-avoid/)
+- [good fat comebacks](https://weightloss.allwomenstalk.com/comebacks-for-sneaks-trying-to-sabotage-your-weight-loss/)
+- [what causes a muffin top](https://diet.allwomenstalk.com/you-dont-have-muffin-top-this-is-whats-really-causing-that-roll/)
+- [scared to date](https://love.allwomenstalk.com/why-you-shouldnt-be-scared-to-eat-what-you-want-on-a-first-date/)
 - [girl that eats a lot](https://food.allwomenstalk.com/the-problems-for-girls-who-eat-a-lot/)
 - [things that slow down your metabolism](https://diet.allwomenstalk.com/everyday-things-that-make-your-metabolism-sluggish/)
-- [new relationship weight gain](https://love.allwomenstalk.com/why-you-gain-more-weight-when-you-have-a-boyfriend/)
-- [what causes a muffin top](https://diet.allwomenstalk.com/you-dont-have-muffin-top-this-is-whats-really-causing-that-roll/)
-- [highest sugar fruits](https://weightloss.allwomenstalk.com/insanely-high-in-sugar-fruits-all-slimming-girls-should-avoid/)
-- [lose last 10 pounds](https://weightloss.allwomenstalk.com/why-those-last-pounds-are-the-hardest-to-lose/)
-- [choose your belly](https://weightloss.allwomenstalk.com/unexpected-things-that-keep-your-belly-flabby/)
-- [good fat comebacks](https://weightloss.allwomenstalk.com/comebacks-for-sneaks-trying-to-sabotage-your-weight-loss/)
 - [8 Ways to Know when Youre Taking Weight Loss Too F...](https://weightloss.allwomenstalk.com/8-ways-to-know-when-youre-taking-weight-loss-too-far/)
 - [7 Reasons You Might Be Struggling to Lose Weight ....](https://weightloss.allwomenstalk.com/7-reasons-you-might-be-struggling-to-lose-weight/)
 

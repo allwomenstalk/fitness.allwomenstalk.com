@@ -42,16 +42,16 @@ If you are intimidated by exercise, then do it via something familiar like danci
 
 ## Related Posts
 
-- [cute workout brands](https://fitness.allwomenstalk.com/fitness-brands-with-the-cutest-workout-gear/)
 - [best workouts for losing body fat](https://weightloss.allwomenstalk.com/easy-workouts-to-lose-body-fat/)
-- [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
 - [exercise burn most calories](https://fitness.allwomenstalk.com/exercises-that-burn-the-most-calories-2/)
+- [cute workout brands](https://fitness.allwomenstalk.com/fitness-brands-with-the-cutest-workout-gear/)
+- [easiest ways to get abs](https://fitness.allwomenstalk.com/the-easiest-peasiest-way-to-get-abs-without-hitting-the-gym/)
+- [hip hop dance workout for beginners](https://fitness.allwomenstalk.com/hip-hop-tabata-workout/)
+- [at home walking workout](https://fitness.allwomenstalk.com/mile-in-home-walking-workout-video/)
+- [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
 - [dumbbell excercises](https://fitness.allwomenstalk.com/awesome-excercises-to-get-sleek-and-sexy-arms/)
 - [perfect abs girl](https://fitness.allwomenstalk.com/the-most-effective-workouts-for-perfect-abs/)
-- [hip hop dance workout for beginners](https://fitness.allwomenstalk.com/hip-hop-tabata-workout/)
-- [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
-- [easiest ways to get abs](https://fitness.allwomenstalk.com/the-easiest-peasiest-way-to-get-abs-without-hitting-the-gym/)
-- [at home walking workout](https://fitness.allwomenstalk.com/mile-in-home-walking-workout-video/)
+- [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
 - [7 Best Workout Apps ...](https://health.allwomenstalk.com/best-workout-apps/)
 - [5 Best Summer Workouts ...](https://allwomenstalk.com/best-summer-workouts/)
 

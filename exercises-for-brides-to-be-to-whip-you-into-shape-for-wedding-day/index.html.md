@@ -42,16 +42,16 @@ So as you approach your wedding day, make sure you eat healthy, exercise and kee
 
 ## Related Posts
 
+- [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
+- [superhero groomsmen](https://wedding.allwomenstalk.com/an-album-of-some-of-the-funniest-wedding-photos-in-the-world-wait-till-you-see-40/)
+- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
+- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
 - [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
+- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
+- [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
 - [cringe proposal](https://funny.allwomenstalk.com/awful-marriage-proposals-that-will-make-you-cringe/)
 - [marriage in december](https://wedding.allwomenstalk.com/reasons-to-have-an-indian-wedding-in-december/)
-- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
-- [superhero groomsmen](https://wedding.allwomenstalk.com/an-album-of-some-of-the-funniest-wedding-photos-in-the-world-wait-till-you-see-40/)
 - [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
-- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
-- [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
-- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
-- [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
 - [How to Fake a Glamorous Wedding on a Shoestring Bu...](https://wedding.allwomenstalk.com/ways-to-fake-an-expensive-wedding/)
 - [How to Love Your Post-Baby Bod for Mommies Struggl...](https://parenting.allwomenstalk.com/how-to-love-your-post-baby-body/)
 

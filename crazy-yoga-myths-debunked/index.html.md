@@ -42,16 +42,16 @@ Stop listening to the naysayers and give yoga a try if you want to. It's great f
 
 ## Related Posts
 
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
-- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
-- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
-- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
-- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
 - [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
-- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
 - [dont starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
+- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
+- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
+- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
+- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 

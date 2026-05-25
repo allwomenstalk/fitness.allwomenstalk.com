@@ -42,16 +42,16 @@ With all these effective ways to work out on the bosu, it just may be time to in
 
 ## Related Posts
 
-- [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
-- [lucy wyndham-read 30 day shred](https://fitness.allwomenstalk.com/challenge-yourself-to-do-these-badass-workouts-with-your-bestie/)
-- [100 percent cotton workout clothes](https://fashion.allwomenstalk.com/how-your-workout-clothes-are-ruining-your-workout/)
-- [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
-- [exercise gif funny](https://fitness.allwomenstalk.com/how-to-survive-common-gym-struggles-weve-all-faced/)
-- [smartbmicalculator](https://fitness.allwomenstalk.com/how-to-work-out-how-fit-you-are/)
 - [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
-- [hows that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
 - [how to stick to your new years fitness resolution](https://fitness.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-doing-more-exercise/)
+- [lucy wyndham-read 30 day shred](https://fitness.allwomenstalk.com/challenge-yourself-to-do-these-badass-workouts-with-your-bestie/)
+- [hows that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
 - [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
+- [exercise gif funny](https://fitness.allwomenstalk.com/how-to-survive-common-gym-struggles-weve-all-faced/)
+- [100 percent cotton workout clothes](https://fashion.allwomenstalk.com/how-your-workout-clothes-are-ruining-your-workout/)
+- [smartbmicalculator](https://fitness.allwomenstalk.com/how-to-work-out-how-fit-you-are/)
+- [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
+- [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [7 Great Bosu Ball Exercises ...](https://allwomenstalk.com/7-great-bosu-ball-exercises/)
 

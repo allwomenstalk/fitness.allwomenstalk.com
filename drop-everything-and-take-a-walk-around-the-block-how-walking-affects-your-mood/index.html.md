@@ -42,16 +42,16 @@ Do you walk? Why does it make you happy?
 
 ## Related Posts
 
-- [the art of laziness](https://inspiration.allwomenstalk.com/ways-to-cultivate-the-art-of-laziness/)
 - [how to chill out](https://lifestyle.allwomenstalk.com/easy-ways-to-chill-out-if-you-have-no-free-time/)
-- [tough day](https://inspiration.allwomenstalk.com/how-to-get-through-a-tough-week/)
-- [craziest apps](https://apps.allwomenstalk.com/de-stressing-apps-that-will-help-you-regain-your-cool-even-on-the-craziest-day/)
-- [how to blow off steam when angry](https://inspiration.allwomenstalk.com/getting-wound-up-how-to-let-off-steam-without-blowing-your-top/)
-- [How to Feel like a Complete Badass when Youre Losi...](https://inspiration.allwomenstalk.com/how-to-feel-like-a-complete-badass/)
-- [7 heavenly breaths](https://fitness.allwomenstalk.com/exercises-meant-for-reducing-your-stress/)
 - [best ways to distract yourself](https://lifestyle.allwomenstalk.com/ways-to-distract-yourself-from-your-boring-reality/)
-- [i want to rant about something](https://inspiration.allwomenstalk.com/no-one-to-rant-to-get-out-your-emotions-by-doing-this-instead/)
 - [overworked mother](https://parenting.allwomenstalk.com/tips-for-overwhelmed-and-overworked-mothers/)
+- [how to blow off steam when angry](https://inspiration.allwomenstalk.com/getting-wound-up-how-to-let-off-steam-without-blowing-your-top/)
+- [7 heavenly breaths](https://fitness.allwomenstalk.com/exercises-meant-for-reducing-your-stress/)
+- [craziest apps](https://apps.allwomenstalk.com/de-stressing-apps-that-will-help-you-regain-your-cool-even-on-the-craziest-day/)
+- [the art of laziness](https://inspiration.allwomenstalk.com/ways-to-cultivate-the-art-of-laziness/)
+- [How to Feel like a Complete Badass when Youre Losi...](https://inspiration.allwomenstalk.com/how-to-feel-like-a-complete-badass/)
+- [i want to rant about something](https://inspiration.allwomenstalk.com/no-one-to-rant-to-get-out-your-emotions-by-doing-this-instead/)
+- [tough day](https://inspiration.allwomenstalk.com/how-to-get-through-a-tough-week/)
 - [7 Reasons Exercising outside Can Help Prevent Depr...](https://fitness.allwomenstalk.com/reasons-exercising-outside-can-help-prevent-depression/)
 - [8 Tips on How to Be in a Good Mood as Often as Pos...](https://inspiration.allwomenstalk.com/tips-on-how-to-be-in-a-good-mood-as-often-as-possible/)
 

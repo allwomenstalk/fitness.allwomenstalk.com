@@ -27,16 +27,16 @@ As you can tell I love both of these websites and working out in general. Fitnes
 
 ## Related Posts
 
-- [ways to make exercise fun](https://fitness.allwomenstalk.com/ways-to-make-exercise-fun/)
-- [lazy thigh workout](https://fitness.allwomenstalk.com/workout-infographics/)
-- [new exercise dvds](https://fitness.allwomenstalk.com/unique-workout-videos/)
 - [hobbies workout](https://health.allwomenstalk.com/hobbies-that-are-a-workout-for-your-brain/)
-- [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
-- [exercise hacks](https://fitness.allwomenstalk.com/exercise-hacks-for-better-workouts-2/)
-- [zumba funny gif](https://fitness.allwomenstalk.com/the-best-workout-according-to-your-mood/)
+- [lazy thigh workout](https://fitness.allwomenstalk.com/workout-infographics/)
+- [ways to make exercise fun](https://fitness.allwomenstalk.com/ways-to-make-exercise-fun/)
 - [pole dancing artinya](https://fitness.allwomenstalk.com/ways-to-train-like-a-dancer/)
-- [worked out body](https://fitness.allwomenstalk.com/listen-to-your-body-to-find-the-perfect-time-to-work-out/)
+- [exercise hacks](https://fitness.allwomenstalk.com/exercise-hacks-for-better-workouts-2/)
 - [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
+- [worked out body](https://fitness.allwomenstalk.com/listen-to-your-body-to-find-the-perfect-time-to-work-out/)
+- [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
+- [new exercise dvds](https://fitness.allwomenstalk.com/unique-workout-videos/)
+- [zumba funny gif](https://fitness.allwomenstalk.com/the-best-workout-according-to-your-mood/)
 - [8 Tips for Working out at Home ...](https://health.allwomenstalk.com/tips-for-working-out-at-home/)
 - [10 Exercises You Can do at Home ...](https://fitene.com/10-exercises-you-can-do-at-home/)
 

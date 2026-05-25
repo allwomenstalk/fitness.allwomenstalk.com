@@ -55,15 +55,15 @@ Which of these exercises do you love? What others would you add to the list?
 ## Related Posts
 
 - [Watch a Hot Aussie Give a 5 Minute  Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
-- [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
-- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
-- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
-- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
-- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
-- [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
-- [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
 - [10 reasons that motivates you to do exercise](https://fitness.allwomenstalk.com/how-to-motivate-yourself-to-work-out-early-in-the-morn/)
+- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
+- [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
 - [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
+- [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
+- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
+- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
+- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
 - [10 Top Fat Burning Exercises ...](https://allwomenstalk.com/top-10-fat-burning-exercises/)
 - [13 of the Absolute Essential Exercises You Need to...](https://weightloss.allwomenstalk.com/exercises-that-burn-the-most-calories/)
 

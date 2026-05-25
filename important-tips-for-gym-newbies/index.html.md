@@ -47,16 +47,16 @@ Sources:
 
 ## Related Posts
 
-- [why are girls pretty](https://beauty.allwomenstalk.com/secrets-that-pretty-girls-wont-tell-you/)
 - [girls totes](https://lifestyle.allwomenstalk.com/ways-the-struggle-is-real-for-tall-girls/)
-- [fabric clipboards](https://diy.allwomenstalk.com/delightful-ways-to-give-boring-clipboards-a-makeover/)
 - [companies like ipsy](https://teen.allwomenstalk.com/subscriptions-every-college-girl-needs/)
-- [hgtv female renovators](https://diy.allwomenstalk.com/watch-these-shows-before-renovating-your-home/)
-- [things to write on diary](https://lifestyle.allwomenstalk.com/unique-new-things-to-write-down-in-your-diary/)
-- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
-- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
 - [things to accomplish by 30](https://lifestyle.allwomenstalk.com/what-every-woman-should-accomplish-before-turning/)
 - [ferris bueller fight club](https://movies.allwomenstalk.com/movies-thatll-inspire-you-to-stop-giving-a-damn/)
+- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
+- [things to write on diary](https://lifestyle.allwomenstalk.com/unique-new-things-to-write-down-in-your-diary/)
+- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
+- [why are girls pretty](https://beauty.allwomenstalk.com/secrets-that-pretty-girls-wont-tell-you/)
+- [hgtv female renovators](https://diy.allwomenstalk.com/watch-these-shows-before-renovating-your-home/)
+- [fabric clipboards](https://diy.allwomenstalk.com/delightful-ways-to-give-boring-clipboards-a-makeover/)
 - [7 Helpful Tips for Getting into an Exercise Routin...](https://health.allwomenstalk.com/7-helpful-tips-for-getting-into-an-exercise-routine/)
 - [9 Fitness Tips for Beginners Every Girl Should Kno...](https://health.allwomenstalk.com/fitness-tips-for-beginners-every-girl-should-know/)
 

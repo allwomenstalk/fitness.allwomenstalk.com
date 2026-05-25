@@ -46,15 +46,15 @@ With so many styles of yoga it can be challenging to know which one’s right fo
 
 ## Related Posts
 
-- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
-- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
-- [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
+- [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
 - [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
+- [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
+- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
 - [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 - [youll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
-- [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
-- [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
-- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
+- [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
+- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
+- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
 - [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [8 Yoga Styles ...](https://allwomenstalk.com/8-yoga-styles/)

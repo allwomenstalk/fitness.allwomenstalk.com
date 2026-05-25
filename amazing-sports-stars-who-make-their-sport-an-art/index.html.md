@@ -56,16 +56,16 @@ It takes a very special talent to draw comparisons between sport and art. An art
 
 ## Related Posts
 
-- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
-- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
-- [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
-- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
-- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
 - [nde celebrities](https://celebs.allwomenstalk.com/celebrities-who-have-had-near-death-experiences/)
-- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
-- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
-- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
+- [7 Hollywood Same-Sex Couples We Love ...](https://celebs.allwomenstalk.com/hollywood-same-sex-couples-we-love/)
+- [female tv cops](https://celebs.allwomenstalk.com/brilliant-actors-actresses-who-have-played-cops-on-tv/)
 - [left at the altar](https://celebs.allwomenstalk.com/celebrities-who-were-left-at-the-altar/)
+- [danny zugelder](https://celebs.allwomenstalk.com/female-celebrities-who-have-been-married-more-than-once/)
+- [famous people who are inspiring](https://celebs.allwomenstalk.com/inspiring-celebrities-that-i-look-up-to/)
+- [celebrities that were born rich](https://celebs.allwomenstalk.com/celebrities-who-were-born-rich/)
+- [celebrities twitter accounts](https://celebs.allwomenstalk.com/hilarious-celebrity-twitter-accounts-to-follow/)
+- [whos a in pretty little liars season 1](https://celebs.allwomenstalk.com/pretty-little-liars-cast-members-who-also-dabble-in-music/)
+- [celebrities giving back to the community](https://celebs.allwomenstalk.com/wonderful-celebrities-that-help-the-community/)
 - [7 Awesomely Impressive Celebrity Entrepreneurs ...](https://celebs.allwomenstalk.com/awesomely-impressive-celebrity-entrepreneurs/)
 - [7 Sexiest Athletes of 2011 ...](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
 

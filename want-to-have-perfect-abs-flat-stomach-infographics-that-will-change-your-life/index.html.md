@@ -100,16 +100,16 @@ Source: [9 Habits Of Fit Girls](https://fitgirlsdiary.com/9-habits-fit-girls-sta
 
 ## Related Posts
 
+- [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
+- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
+- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
+- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
+- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
+- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
+- [sexy body workouts](https://fitness.allwomenstalk.com/sexy-swan-ballerina-body-workouts/)
 - [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
 - [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
-- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
-- [sexy body workouts](https://fitness.allwomenstalk.com/sexy-swan-ballerina-body-workouts/)
-- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
-- [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
-- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
-- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
-- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
-- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
 - [13 Exercises for Losing Stomach Fat Fast ...](https://weightloss.allwomenstalk.com/exercises-for-losing-stomach-fat-fast/)
 - [8 Foods That Flatten Your Stomach ...](https://allwomenstalk.com/8-foods-that-flatten-your-stomach/)
 

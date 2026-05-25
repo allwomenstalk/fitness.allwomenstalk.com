@@ -42,16 +42,16 @@ You should be happy with your body just the way it is. However, if you can't hel
 
 ## Related Posts
 
-- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
-- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
 - [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
-- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
-- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
-- [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
-- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
-- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [gaiam tv fit  yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
+- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
+- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
+- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
+- [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
 - [What You Should Know about Breast Enhancement ...](https://allwomenstalk.com/what-you-should-know-about-breast-enhancement/)
 - [Brilliant Bra Hacks That Your Breasts Will Thank Y...](https://fashion.allwomenstalk.com/brilliant-bra-hacks-that-your-breasts-will-thank-you-for/)
 

@@ -30,16 +30,16 @@ All these benefits come together and lead you into a state where you are motivat
 
 ## Related Posts
 
-- [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
 - [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
 - [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
+- [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
 - [7 Reasons to Listen to Music While You Exercise .....](https://fitness.allwomenstalk.com/reasons-to-listen-to-music-while-you-exercise/)
 - [Brilliant Ways to Change up Your Jogging for Girls...](https://running.allwomenstalk.com/make-jogging-more-fun-by-trying-these/)
 

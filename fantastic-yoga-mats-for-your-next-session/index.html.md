@@ -140,16 +140,16 @@ What does your yoga mat look like? Mine is plain purple, but I feel some inspira
 
 ## Related Posts
 
-- [how to workout if you can t afford the gym](https://fitness.allwomenstalk.com/easy-ways-to-get-fit-if-you-cant-afford-a-gym/)
-- [breast lifting workouts](https://fitness.allwomenstalk.com/exercises-to-lift-and-firm-breasts/)
 - [pole dancing good exercise](https://fitness.allwomenstalk.com/great-benefits-of-pole-dancing-for-exercise/)
-- [gym once a week](https://fitness.allwomenstalk.com/top-benefits-of-going-to-the-gym-every-week/)
-- [tiring exercises](https://fitness.allwomenstalk.com/ways-to-workout-for-longer-without-tiring/)
-- [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
 - [7 person yoga poses](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-immunity/)
-- [fit teenage girls](https://teen.allwomenstalk.com/exercises-every-teenager-should-do-daily/)
+- [gym once a week](https://fitness.allwomenstalk.com/top-benefits-of-going-to-the-gym-every-week/)
+- [breast lifting workouts](https://fitness.allwomenstalk.com/exercises-to-lift-and-firm-breasts/)
 - [pool exercises for abs](https://fitness.allwomenstalk.com/exercises-to-do-in-water/)
 - [bob harper workouts](https://fitness.allwomenstalk.com/biggest-loser-style-workouts/)
+- [jada pinkett smith fitness](https://fitness.allwomenstalk.com/better-butt-workouts-from-jada-pinkett-smith/)
+- [tiring exercises](https://fitness.allwomenstalk.com/ways-to-workout-for-longer-without-tiring/)
+- [fit teenage girls](https://teen.allwomenstalk.com/exercises-every-teenager-should-do-daily/)
+- [how to workout if you can t afford the gym](https://fitness.allwomenstalk.com/easy-ways-to-get-fit-if-you-cant-afford-a-gym/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 - [7 Accessories for Doing Yoga ...](https://allwomenstalk.com/7-accessories-for-doing-yoga/)
 

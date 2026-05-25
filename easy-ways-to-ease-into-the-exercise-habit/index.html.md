@@ -42,16 +42,16 @@ These are ways that are tried and tested. They work for me and I hope they work 
 
 ## Related Posts
 
-- [add fitness](https://fitness.allwomenstalk.com/easy-ways-to-add-fitness-to-your-day/)
-- [warm up before jumping rope](https://fitness.allwomenstalk.com/ways-to-warm-up-before-you-workout/)
-- [7 Ways to Gauge Your Fitness Level ...](https://fitness.allwomenstalk.com/ways-to-gauge-your-fitness-level/)
-- [7 Ways to Make Time to Work out without Hiring a S...](https://fitness.allwomenstalk.com/ways-to-make-time-to-work-out-without-hiring-a-sitter/)
 - [7 Things You Can do to Increase Your Endurance on ...](https://running.allwomenstalk.com/things-you-can-do-to-help-increase-your-endurance-on-long-runs/)
-- [7 Yoga Poses That Enhance Digestion and Fight Bloa...](https://fitene.com/yoga-poses-that-enhance-digestion-and-fight-bloating/)
 - [7 Impressive Mental Health Benefits of Exercise Yo...](https://health.allwomenstalk.com/impressive-mental-health-benefits-of-exercise-you-need-to-know-about/)
-- [7 Moves for Toned and Sculpted Arms ...](https://fitness.allwomenstalk.com/moves-for-toned-and-sculpted-arms/)
+- [7 Yoga Poses That Enhance Digestion and Fight Bloa...](https://fitene.com/yoga-poses-that-enhance-digestion-and-fight-bloating/)
+- [warm up before jumping rope](https://fitness.allwomenstalk.com/ways-to-warm-up-before-you-workout/)
 - [7 Exercises to Shape up Your Lower Body ...](https://fitness.allwomenstalk.com/exercises-to-shape-up-your-lower-body/)
 - [7 Ways to Burn More Calories While Running ...](https://running.allwomenstalk.com/ways-to-burn-more-calories-while-running/)
+- [add fitness](https://fitness.allwomenstalk.com/easy-ways-to-add-fitness-to-your-day/)
+- [7 Ways to Gauge Your Fitness Level ...](https://fitness.allwomenstalk.com/ways-to-gauge-your-fitness-level/)
+- [7 Ways to Make Time to Work out without Hiring a S...](https://fitness.allwomenstalk.com/ways-to-make-time-to-work-out-without-hiring-a-sitter/)
+- [7 Moves for Toned and Sculpted Arms ...](https://fitness.allwomenstalk.com/moves-for-toned-and-sculpted-arms/)
 - [9 Techniques to Make Yourself Exercise ...](https://weightloss.allwomenstalk.com/9-techniques-to-make-yourself-exercise/)
 - [7 Ways to Stick to an Exercise Schedule ...](https://weightloss.allwomenstalk.com/7-ways-to-stick-to-an-exercise-schedule/)
 

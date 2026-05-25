@@ -42,16 +42,16 @@ So now that you have learned a whole new set of dancer workouts to help you be b
 
 ## Related Posts
 
-- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
+- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
+- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
 - [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
-- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
-- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
-- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
-- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
-- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
-- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
 - [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
+- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
+- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
+- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
+- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 - [7 Belly Dance Moves to Tone Your Body ...](https://weightloss.allwomenstalk.com/belly-dance-moves-to-tone-your-body/)
 

@@ -42,16 +42,16 @@ Now that you have a group of circuit training workouts that you can perform in y
 
 ## Related Posts
 
-- [7 Exercises to Give You a Super Sexy Running Body ...](https://running.allwomenstalk.com/exercises-to-give-you-a-super-sexy-running-body/)
-- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
 - [7 Exercises to Help You Build up Your Running Dist...](https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/)
-- [7 New Year New You Workouts ...](https://fitness.allwomenstalk.com/new-year-new-you-workouts/)
-- [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
-- [7 Ways to Sneak in Exercise ...](https://fitness.allwomenstalk.com/ways-to-sneak-in-exercise-2/)
-- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
 - [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
+- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
+- [7 New Year New You Workouts ...](https://fitness.allwomenstalk.com/new-year-new-you-workouts/)
+- [7 Exercises to Give You a Super Sexy Running Body ...](https://running.allwomenstalk.com/exercises-to-give-you-a-super-sexy-running-body/)
+- [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
 - [7 Simple Tweaks for Better Workouts ...](https://fitness.allwomenstalk.com/simple-tweaks-for-better-workouts/)
 - [The Busy Girls Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
+- [7 Excuses Not to Use to Skip Your Workout ...](https://fitness.allwomenstalk.com/excuses-not-to-use-to-skip-your-workout/)
+- [7 Ways to Sneak in Exercise ...](https://fitness.allwomenstalk.com/ways-to-sneak-in-exercise-2/)
 - [7 Core Strengthening Exercises ...](https://health.allwomenstalk.com/core-strengthening-exercises/)
 - [7 Top Exercises That You Can do around the House ....](https://allwomenstalk.com/top-7-exercises-you-can-do-around-the-house/)
 

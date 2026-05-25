@@ -138,16 +138,16 @@ There's an extreme twist to this arm balance pose.
 
 ## Related Posts
 
-- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
-- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
-- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
 - [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
 - [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
+- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
 - [gaiam tv fit  yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
 - [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
-- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
-- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
 - [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
+- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
+- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
+- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 
