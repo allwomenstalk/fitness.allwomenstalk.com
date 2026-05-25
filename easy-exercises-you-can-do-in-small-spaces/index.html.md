@@ -3,7 +3,7 @@ title: "Dont Let a Lack of Space Keep You from Exercising ..."
 description: "Jumping Jacks; Weighted Pushups; Jumping Rope; Body Weight Exercises; Resistance Training; More ..."
 url: "https://fitness.allwomenstalk.com/easy-exercises-you-can-do-in-small-spaces/"
 category: "fitness"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Dont Let a Lack of Space Keep You from Exercising ...
@@ -42,16 +42,16 @@ Hope you enjoyed these workouts that you can perform right in your own small spa
 
 ## Related Posts
 
-- [7 Exercises to Get You Hot for the Holidays ...](https://fitness.allwomenstalk.com/exercises-to-get-you-hot-for-the-holidays/)
-- [foam roller ab workout](https://fitness.allwomenstalk.com/exercises-using-a-foam-roller/)
-- [7 Times when Its Okay to Skip a Workout ...](https://fitness.allwomenstalk.com/times-when-its-okay-to-skip-a-workout/)
 - [Trying to Strengthen Your Body Dont Overlook These...](https://fitness.allwomenstalk.com/overlooked-sports-for-strengthening-your-body/)
-- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
+- [7 Times when Its Okay to Skip a Workout ...](https://fitness.allwomenstalk.com/times-when-its-okay-to-skip-a-workout/)
+- [foam roller ab workout](https://fitness.allwomenstalk.com/exercises-using-a-foam-roller/)
 - [7 Plyometric Moves That Burn Major Calories ...](https://fitness.allwomenstalk.com/plyometric-moves-that-burn-major-calories/)
-- [exercises you can do at your desk](https://fitness.allwomenstalk.com/exercises-you-can-do-at-your-desk/)
 - [7 Holiday Fitness Tips to Say Yes to ...](https://fitness.allwomenstalk.com/holiday-fitness-tips-to-say-yes-to/)
-- [glutes targeted exercises](https://fitness.allwomenstalk.com/exercises-that-target-your-glutes/)
+- [exercises you can do at your desk](https://fitness.allwomenstalk.com/exercises-you-can-do-at-your-desk/)
 - [7 Hot Body Workouts for the New Year ...](https://fitness.allwomenstalk.com/hot-body-workouts-for-the-new-year/)
+- [7 Exercises to Get You Hot for the Holidays ...](https://fitness.allwomenstalk.com/exercises-to-get-you-hot-for-the-holidays/)
+- [glutes targeted exercises](https://fitness.allwomenstalk.com/exercises-that-target-your-glutes/)
+- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
 - [7 Tips to Make More Time for Exercise ...](https://health.allwomenstalk.com/tips-to-make-more-time-for-exercise/)
 - [12 Ways to Make Time for Exercise ...](https://allwomenstalk.com/12-ways-to-make-time-for-exercise/)
 

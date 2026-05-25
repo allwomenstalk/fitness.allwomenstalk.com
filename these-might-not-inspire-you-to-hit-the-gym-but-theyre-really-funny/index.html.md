@@ -3,7 +3,7 @@ title: "These Might Not Inspire You to Hit the Gym but Theyre Really Funny!"
 description: "Listen to the Sweatpants!; Bubbles Vs. Balls?; You're Neither!; Resolutions, the Gym; Danger!; More ..."
 url: "https://fitness.allwomenstalk.com/these-might-not-inspire-you-to-hit-the-gym-but-theyre-really-funny/"
 category: "fitness"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # These Might Not Inspire You to Hit the Gym but Theyre Really Funny!
@@ -14,7 +14,7 @@ It's not easy getting motivated to get to the gym, but every once in a while, I'
 
 ![Listen to the Sweatpants!](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/d4/u1/hnkrmd20_420x294.jpg)
 
-Seriously, that bathing suit has an [attitude problem](https://allwomenstalk.com/8-telling-signs-that-you-have-an-attitude-problem/).
+Seriously, that bathing suit has an attitude problem.
 
 ## 2. Bubbles Vs. Balls?
 
@@ -114,16 +114,16 @@ I want this shirt. It's totally motivational. Except it's not. But it's funny!
 
 ## Related Posts
 
-- [7 Ways to Shape up in 7 Minutes ...](https://fitness.allwomenstalk.com/ways-to-shape-up-in-7-minutes/)
-- [9 Awesome Reasons to Try Pilates ...](https://fitness.allwomenstalk.com/awesome-reasons-to-try-pilates/)
-- [7 Secrets of an Amazing Athlete That You Can Learn...](https://fitness.allwomenstalk.com/secrets-of-an-amazing-athlete-that-you-can-learn-from/)
 - [All the Workouts You Need to Get a Grand Slam Body...](https://weightloss.allwomenstalk.com/workouts-for-a-grand-slam-body/)
+- [7 Ways to Shape up in 7 Minutes ...](https://fitness.allwomenstalk.com/ways-to-shape-up-in-7-minutes/)
+- [7 Secrets of an Amazing Athlete That You Can Learn...](https://fitness.allwomenstalk.com/secrets-of-an-amazing-athlete-that-you-can-learn-from/)
 - [7 Ways to Transition from Treadmill to Outdoor Run...](https://running.allwomenstalk.com/ways-to-transition-from-treadmill-to-outdoor-running-2/)
 - [7 Workouts to do on Days when You Dont Feel like W...](https://fitness.allwomenstalk.com/workouts-to-do-on-days-when-you-dont-feel-like-working-out/)
+- [9 Awesome Reasons to Try Pilates ...](https://fitness.allwomenstalk.com/awesome-reasons-to-try-pilates/)
 - [7 Ways to Experience the Joy of Running ...](https://running.allwomenstalk.com/ways-to-experience-the-joy-of-running/)
+- [7 Ways to Pace Your Runs the Right Way ...](https://running.allwomenstalk.com/ways-to-pace-your-runs-the-right-way/)
 - [why is gym class important](https://teen.allwomenstalk.com/reasons-why-its-healthy-to-take-gym-class-seriously/)
 - [gym to destress](https://fitness.allwomenstalk.com/surprising-reasons-why-you-should-destress-before-working-out/)
-- [7 Ways to Pace Your Runs the Right Way ...](https://running.allwomenstalk.com/ways-to-pace-your-runs-the-right-way/)
 - [Top I-dont-wanna-workout Excuses](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
 - [41 Inspirational Workout Tanks to Get You Motivate...](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 
