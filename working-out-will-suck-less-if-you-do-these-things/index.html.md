@@ -3,7 +3,7 @@ title: "17 Things You Can do to Make Working out Suck a Lot Less ..."
 description: "More Sleep – Trust Me, It Helps; Make a Workout Game out of Your Binge-watched Netflix Show; Dance Your Ass off!; Gym? Catch up on Your Reading While There; … or Your Favorite TV Shows; More ..."
 url: "https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/"
 category: "fitness"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 17 Things You Can do to Make Working out Suck a Lot Less ...
@@ -106,16 +106,16 @@ Drinking water sucks but it's a need when you are working out, so why not spice 
 
 ## Related Posts
 
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
-- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
+- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
+- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
 - [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
-- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
-- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
-- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
-- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
+- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
 - [10 Ways to Make Exercise Fun ...](https://weightloss.allwomenstalk.com/10-ways-to-make-exercise-fun/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 

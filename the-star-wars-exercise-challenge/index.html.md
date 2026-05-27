@@ -3,7 +3,7 @@ title: "The Star Wars Exercise Challenge ..."
 description: "Light Saber; Use Force; Flying in Space; Storm Troopers; C3PO Talks; More ..."
 url: "https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/"
 category: "fitness"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # The Star Wars Exercise Challenge ...
@@ -63,16 +63,16 @@ Believe it or not, working out can be fun! And watching movies doesn't have to b
 
 ## Related Posts
 
-- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
-- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
-- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
-- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
-- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
-- [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
-- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
-- [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
 - [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
+- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
+- [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
+- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
+- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
+- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
+- [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
+- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
 - [7 Core Strengthening Exercises ...](https://health.allwomenstalk.com/core-strengthening-exercises/)
 - [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
 

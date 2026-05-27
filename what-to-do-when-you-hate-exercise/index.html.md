@@ -3,7 +3,7 @@ title: "What to do when You Hate Exercise but Want to Be Fit ..."
 description: "Don't Call It Exercise; Don't Compare Yourself; Slow and Steady Wins the Race; Get an Accountability Partner; Attempt Something Different; More ..."
 url: "https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/"
 category: "fitness"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # What to do  when You Hate Exercise but Want to Be Fit ...
@@ -90,16 +90,16 @@ Sources
 
 ## Related Posts
 
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
 - [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
-- [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
 - [health fitness products](https://fitness.allwomenstalk.com/fitness-products-that-inspire-healthy-habits/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
-- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
-- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
-- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
 - [unique pilates](https://fitness.allwomenstalk.com/pilates-exercises-without-a-reformer/)
+- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
+- [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
+- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
 - [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
 - [Practical Reasons to Skip the Gym and Find Another...](https://fitness.allwomenstalk.com/great-reasons-to-skip-the-gym-and-find-alternatives/)
 - [Exercise Today Even if You Dont Want to ...](https://fitness.allwomenstalk.com/reasons-to-exercise-today-even-if-you-dont-want-to/)
 
