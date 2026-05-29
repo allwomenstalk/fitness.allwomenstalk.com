@@ -3,7 +3,7 @@ title: "7 Easy Yoga Poses to Get You Started ..."
 description: "Table Pose; Downward Dog; Crescent Pose; Chair Pose; Upward Dog; More ..."
 url: "https://fitness.allwomenstalk.com/easy-yoga-poses-to-get-you-started/"
 category: "fitness"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Easy Yoga Poses to Get You Started ...
@@ -57,15 +57,15 @@ Now you know seven great yoga poses that are simple enough to do every day. Itâ€
 ## Related Posts
 
 - [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
-- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
-- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
-- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
-- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
 - [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
+- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
 - [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
+- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
+- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
 - [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
+- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 

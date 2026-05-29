@@ -3,7 +3,7 @@ title: "7 Exercises to Get You Hot for the Holidays ..."
 description: "Squat Challenge; One Legged Squat; Plank; Running; In the Pool; More ..."
 url: "https://fitness.allwomenstalk.com/exercises-to-get-you-hot-for-the-holidays/"
 category: "fitness"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Exercises to Get You Hot for the Holidays ...
@@ -42,16 +42,16 @@ With all these great workouts, it is time to get up and ready to challenge yours
 
 ## Related Posts
 
-- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
-- [glutes targeted exercises](https://fitness.allwomenstalk.com/exercises-that-target-your-glutes/)
-- [Trying to Strengthen Your Body Dont Overlook These...](https://fitness.allwomenstalk.com/overlooked-sports-for-strengthening-your-body/)
-- [how to tone flabby belly](https://fitness.allwomenstalk.com/exercises-to-tone-up-a-flabby-tummy/)
-- [Burn off Holiday Calories with These Foolproof Wor...](https://weightloss.allwomenstalk.com/workouts-to-burn-off-holiday-calories/)
-- [7 Simple Tweaks for Better Workouts ...](https://fitness.allwomenstalk.com/simple-tweaks-for-better-workouts/)
-- [7 Circuit Training Exercises You Can do at Home .....](https://fitness.allwomenstalk.com/circuit-training-exercises-you-can-do-at-home/)
-- [7 Hot Body Workouts for the New Year ...](https://fitness.allwomenstalk.com/hot-body-workouts-for-the-new-year/)
-- [7 Fun Fat Burning Workouts ...](https://fitness.allwomenstalk.com/fun-fat-burning-workouts/)
 - [7 Holiday Fitness Tips to Say Yes to ...](https://fitness.allwomenstalk.com/holiday-fitness-tips-to-say-yes-to/)
+- [7 Fun Fat Burning Workouts ...](https://fitness.allwomenstalk.com/fun-fat-burning-workouts/)
+- [7 Simple Tweaks for Better Workouts ...](https://fitness.allwomenstalk.com/simple-tweaks-for-better-workouts/)
+- [Burn off Holiday Calories with These Foolproof Wor...](https://weightloss.allwomenstalk.com/workouts-to-burn-off-holiday-calories/)
+- [Trying to Strengthen Your Body Dont Overlook These...](https://fitness.allwomenstalk.com/overlooked-sports-for-strengthening-your-body/)
+- [glutes targeted exercises](https://fitness.allwomenstalk.com/exercises-that-target-your-glutes/)
+- [7 Circuit Training Exercises You Can do at Home .....](https://fitness.allwomenstalk.com/circuit-training-exercises-you-can-do-at-home/)
+- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
+- [how to tone flabby belly](https://fitness.allwomenstalk.com/exercises-to-tone-up-a-flabby-tummy/)
+- [7 Hot Body Workouts for the New Year ...](https://fitness.allwomenstalk.com/hot-body-workouts-for-the-new-year/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Exercises to Tone Your Legs This Summer ...](https://allwomenstalk.com/7-exercises-to-tone-your-legs-this-summer/)
 
