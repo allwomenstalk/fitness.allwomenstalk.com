@@ -3,7 +3,7 @@ title: "7 Easy Ways to Burn Calories Throughout Your Day"
 description: "Go for an Hour-Long Walk; Get Moving with Active Gaming; Tackle Housework; Choose the Stairs; More ..."
 url: "https://fitness.allwomenstalk.com/ways-to-burn-calories-without-trying/"
 category: "fitness"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Easy Ways to Burn Calories Throughout Your Day

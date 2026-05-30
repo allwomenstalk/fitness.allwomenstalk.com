@@ -3,7 +3,7 @@ title: "21 Fitness Goals for the Year 2018 ..."
 description: "Her Fab Beach Body; Her Beautiful Arms; Her Game Face; Her Abs; Her Running Buddy; More ..."
 url: "https://fitness.allwomenstalk.com/fitness-goals-for-the-year/"
 category: "fitness"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 21 Fitness Goals for the Year 2018 ...
@@ -100,16 +100,16 @@ It helps to bring you own cheerleader!
 
 ## Related Posts
 
-- [The 15-Minute  Workout Video for Complete Beginner...](https://fitness.allwomenstalk.com/the-15-minute-workout-video-for-complete-beginners/)
-- [7 Fitness Resolutions That Are Actually Doable for...](https://fitness.allwomenstalk.com/fitness-resolutions-that-are-actually-doable-for-any-age/)
-- [We All Experience These 7 Things during an Intense...](https://fitness.allwomenstalk.com/we-all-experience-these-things-during-an-intense-workout/)
-- [What Its like to Hit the Gym after the Holidays .....](https://fitness.allwomenstalk.com/what-its-like-to-hit-the-gym-after-the-holidays/)
-- [7 Ways Strength Training Can Help You during a Run...](https://fitness.allwomenstalk.com/ways-strength-training-can-help-you-during-a-run/)
+- [How to Fit in Exercise when Youre Busier than Ever...](https://fitness.allwomenstalk.com/how-to-fit-in-exercise-when-youre-busier-than-ever/)
 - [things to think about while running](https://running.allwomenstalk.com/productive-things-to-think-about-during-your-run-time/)
+- [will resistance bands help lose weight](https://fitness.allwomenstalk.com/how-resistance-bands-can-help-you-get-fit-faster/)
+- [We All Experience These 7 Things during an Intense...](https://fitness.allwomenstalk.com/we-all-experience-these-things-during-an-intense-workout/)
+- [7 Ways Strength Training Can Help You during a Run...](https://fitness.allwomenstalk.com/ways-strength-training-can-help-you-during-a-run/)
 - [Work out Your Entire Body with This One Move ...](https://fitness.allwomenstalk.com/work-out-your-entire-body-with-this-one-move/)
 - [Workout Gear That Will Help You Stick to Your New ...](https://fitness.allwomenstalk.com/workout-gear-that-will-help-you-stick-to-your-new-years-resolutions/)
-- [will resistance bands help lose weight](https://fitness.allwomenstalk.com/how-resistance-bands-can-help-you-get-fit-faster/)
-- [How to Fit in Exercise when Youre Busier than Ever...](https://fitness.allwomenstalk.com/how-to-fit-in-exercise-when-youre-busier-than-ever/)
+- [7 Fitness Resolutions That Are Actually Doable for...](https://fitness.allwomenstalk.com/fitness-resolutions-that-are-actually-doable-for-any-age/)
+- [The 15-Minute  Workout Video for Complete Beginner...](https://fitness.allwomenstalk.com/the-15-minute-workout-video-for-complete-beginners/)
+- [What Its like to Hit the Gym after the Holidays .....](https://fitness.allwomenstalk.com/what-its-like-to-hit-the-gym-after-the-holidays/)
 - [8 Important Health and Fitness Goals for 2013 ...](https://weightloss.allwomenstalk.com/important-health-and-fitness-goals-for/)
 - [8 Movies to Inspire You to Get Fit ...](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 

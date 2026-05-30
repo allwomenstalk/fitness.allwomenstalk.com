@@ -3,7 +3,7 @@ title: "7 Crazy Yoga Myths Debunked ..."
 description: "You're Not Flexible Enough; It's Not My Religion; It's Just for Women; Yoga Makes You Look Funny; It's Too Expensive; More ..."
 url: "https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/"
 category: "fitness"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Crazy Yoga Myths Debunked ...
@@ -44,11 +44,11 @@ Stop listening to the naysayers and give yoga a try if you want to. It's great f
 
 - [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
 - [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
-- [dont starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
 - [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
 - [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [dont starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
+- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
 - [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
 - [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
 - [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)

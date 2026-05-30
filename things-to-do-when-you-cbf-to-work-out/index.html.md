@@ -3,7 +3,7 @@ title: "3 Things to do when You CBF to Work out ..."
 description: "Walk the Dog; Ad Break Challenge; Meditation; More ..."
 url: "https://fitness.allwomenstalk.com/things-to-do-when-you-cbf-to-work-out/"
 category: "fitness"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 3 Things to do when You CBF to Work out ...
@@ -26,13 +26,13 @@ Why not work on your mind if you can’t be motivated to work on your body? Find
 
 - [need the gym](https://fitness.allwomenstalk.com/reasons-why-you-dont-need-the-gym-to-keep-fit/)
 - [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
-- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
 - [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
-- [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
-- [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
-- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
+- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
 - [good body girls](https://fitness.allwomenstalk.com/fitness-inspo-for-girls-who-are-feeling-demotivated/)
 - [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
+- [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
+- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
+- [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
 - [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
 - [7 Reasons to Skip a Work-out ...](https://allwomenstalk.com/7-reasons-to-skip-a-work-out/)
 - [7 Reasons to Update Your Work-out ...](https://allwomenstalk.com/7-reasons-to-update-your-work-out/)

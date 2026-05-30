@@ -3,7 +3,7 @@ title: "Fear of God Athletics 2025: More Than Just a Collection..."
 description: "Unveiling the Collection; Price Points that Surprise; The Design Philosophy; Versatility and Everyday Elegance; A Tribute to Timelessness; More ..."
 url: "https://fitness.allwomenstalk.com/fear-of-god-athletics-2025-collection/"
 category: "fitness"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Fear of God Athletics 2025: More Than Just a Collection...

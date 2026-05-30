@@ -3,7 +3,7 @@ title: "Get Fit While Watching TV: Downton Abbey Edition ..."
 description: "Grandmother Violet Says Something Witty; Mary Rolls Her Eyes; \"Ring for Tea?\"; Daisy Gets Criticized; Violet and Isobel Bicker; More ..."
 url: "https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/"
 category: "fitness"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Get Fit While Watching TV: Downton Abbey Edition ...
@@ -63,15 +63,15 @@ Whether you've just started watching the show or have been an avid viewer since 
 
 ## Related Posts
 
-- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
-- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
-- [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
-- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
 - [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
 - [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
-- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
+- [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
 - [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
+- [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
+- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [7 female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
 - [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [Get Fit Playing VR Video Games ...](https://allwomenstalk.com/get-fit-playing-vr-video-games/)
 - [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
