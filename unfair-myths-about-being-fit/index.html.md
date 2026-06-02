@@ -3,7 +3,7 @@ title: "7 Unfair Myths about Being Fit ..."
 description: "You’re Just Lucky; You Obsess about Calories; You Live at the Gym; You’re a Pushy Zealot; You’re Self-absorbed/constantly Taking Selfies; More ..."
 url: "https://fitness.allwomenstalk.com/unfair-myths-about-being-fit/"
 category: "fitness"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Unfair Myths about Being Fit ...
@@ -42,16 +42,16 @@ So how many of these fit-myths have you believed in the past? And which did you 
 
 ## Related Posts
 
-- [7 Reasons Why People Gain Weight in a Committed Re...](https://diet.allwomenstalk.com/reasons-why-people-gain-weight-in-a-committed-relationship-and-how-to-battle-it/)
+- [7 Really Important Health and Fitness Reasons You ...](https://fitness.allwomenstalk.com/really-important-health-and-fitness-reasons-you-should-eat-breakfast/)
+- [7 Reasons Why Your Diet is Making You Tired ...](https://diet.allwomenstalk.com/reasons-why-your-diet-is-making-you-tired/)
+- [7 Reasons to Eat when Your Eating Disorder Tells Y...](https://health.allwomenstalk.com/reasons-to-eat-when-your-eating-disorder-tells-you-not-to/)
 - [9 Common Myths about Being Vegan ...](https://food.allwomenstalk.com/common-myths-about-being-vegan/)
 - [7 Causes of Poor Digestion You Shouldnt Ignore ...](https://vityle.com/causes-of-poor-digestion-you-shouldnt-ignore/)
-- [7 Things I Learned about My Health from My Eating ...](https://health.allwomenstalk.com/things-i-learned-about-my-health-from-my-eating-disorder/)
-- [7 Reasons to Eat when Your Eating Disorder Tells Y...](https://health.allwomenstalk.com/reasons-to-eat-when-your-eating-disorder-tells-you-not-to/)
-- [7 Cooking Mistakes to Avoid While Dieting ...](https://diet.allwomenstalk.com/cooking-mistakes-to-avoid-while-dieting/)
-- [7 Really Important Health and Fitness Reasons You ...](https://fitness.allwomenstalk.com/really-important-health-and-fitness-reasons-you-should-eat-breakfast/)
 - [7 Reasons to Eat Superfoods when Youre Dieting ...](https://diet.allwomenstalk.com/reasons-to-eat-superfoods-when-youre-dieting/)
+- [7 Cooking Mistakes to Avoid While Dieting ...](https://diet.allwomenstalk.com/cooking-mistakes-to-avoid-while-dieting/)
+- [7 Reasons Why People Gain Weight in a Committed Re...](https://diet.allwomenstalk.com/reasons-why-people-gain-weight-in-a-committed-relationship-and-how-to-battle-it/)
+- [7 Things I Learned about My Health from My Eating ...](https://health.allwomenstalk.com/things-i-learned-about-my-health-from-my-eating-disorder/)
 - [7 Things You Need to Know about Juice Fasts ...](https://diet.allwomenstalk.com/things-you-need-to-know-about-juice-fasts/)
-- [7 Reasons Why Your Diet is Making You Tired ...](https://diet.allwomenstalk.com/reasons-why-your-diet-is-making-you-tired/)
 - [7 Compelling Reasons to Get Back into Shape ...](https://weightloss.allwomenstalk.com/compelling-reasons-to-get-back-into-shape/)
 - [7 Dumb Excuses to Avoid Exercise ...](https://health.allwomenstalk.com/dumb-excuses-to-avoid-exercise/)
 

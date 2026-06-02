@@ -3,7 +3,7 @@ title: "Health Stats for Those Who Need Extra Motivation to Get off the Couch ..
 description: "Fast Food Sales Are $110 Billion Dollar per Year; Obesity Goes up Every Single Year; A Small Few Get the Right Amount of Exercise; Hours in Front of a Screen; More than ¼ of Americans Have Diabetes; More ..."
 url: "https://fitness.allwomenstalk.com/health-stats-for-those-who-need-extra-motivation-to-get-off-the-couch/"
 category: "fitness"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Health Stats for Those Who Need Extra Motivation to Get off the Couch ...
@@ -42,16 +42,16 @@ Which of these stats scared you the most? Will you get moving today?
 
 ## Related Posts
 
+- [7 Genius Ways to Feel Less Sore after a Rough Work...](https://fitness.allwomenstalk.com/ways-to-feel-less-sore-after-an-intense-workout/)
+- [How to Start an Exercise Regime with Your Everyday...](https://weightloss.allwomenstalk.com/how-to-start-an-exercise-regime-with-your-everyday-routines/)
+- [7 Days  7 Yoga Tutorials to Get You Started on You...](https://fitness.allwomenstalk.com/days-7-yoga-tutorials/)
+- [How do I Burn More Calories during a Workout](https://fitene.com/switch-it-up-tips-for-burning-more-calories-at-the-gym/)
+- [7 Ways for Slow Girls to Speed up Their Fitness Mo...](https://fitness.allwomenstalk.com/ways-to-speed-up-your-slow-mo-moves/)
 - [10 Tips for Girls Wanting to Start a Summer Run Ro...](https://running.allwomenstalk.com/tips-for-those-who-want-to-start-a-summertime-running-routine/)
+- [lenation](https://fitness.allwomenstalk.com/fit-girls-will-love-these-creative-moves/)
+- [10 Yoga Moves to Help Girls Who Suffer from Chroni...](https://health.allwomenstalk.com/yoga-moves-for-girls-with-chronic-back-pain/)
 - [what happens in your brain when you exercise](https://health.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise-2/)
 - [Inspiring Total Body Moves for the Fitness Obsesse...](https://fitness.allwomenstalk.com/total-body-moves-for-the-fitness-obsessed/)
-- [7 Genius Ways to Feel Less Sore after a Rough Work...](https://fitness.allwomenstalk.com/ways-to-feel-less-sore-after-an-intense-workout/)
-- [7 Days  7 Yoga Tutorials to Get You Started on You...](https://fitness.allwomenstalk.com/days-7-yoga-tutorials/)
-- [lenation](https://fitness.allwomenstalk.com/fit-girls-will-love-these-creative-moves/)
-- [How to Start an Exercise Regime with Your Everyday...](https://weightloss.allwomenstalk.com/how-to-start-an-exercise-regime-with-your-everyday-routines/)
-- [7 Ways for Slow Girls to Speed up Their Fitness Mo...](https://fitness.allwomenstalk.com/ways-to-speed-up-your-slow-mo-moves/)
-- [How do I Burn More Calories during a Workout](https://fitene.com/switch-it-up-tips-for-burning-more-calories-at-the-gym/)
-- [10 Yoga Moves to Help Girls Who Suffer from Chroni...](https://health.allwomenstalk.com/yoga-moves-for-girls-with-chronic-back-pain/)
 - [30 Motivational Health and Exercise Quotes ...](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
 - [8 Important Health and Fitness Goals for 2013 ...](https://weightloss.allwomenstalk.com/important-health-and-fitness-goals-for/)
 

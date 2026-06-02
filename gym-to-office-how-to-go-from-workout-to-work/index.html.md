@@ -3,7 +3,7 @@ title: "Gym to Office: How to Go from Workout to Work ..."
 description: "Keep a Checklist; Plan Your Shower Routine; If Showering Isn’t an Option, Try the Next Best Thing; Choose the Right Hairstyle; It’s All about the Planning; More ..."
 url: "https://fitness.allwomenstalk.com/gym-to-office-how-to-go-from-workout-to-work/"
 category: "fitness"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Gym to Office: How to Go from Workout to Work ...
@@ -46,16 +46,16 @@ Like everything, organization, planning and common sense goes a long way in succ
 
 ## Related Posts
 
-- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
-- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
+- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
 - [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
-- [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
+- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
 - [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
 - [workouts to slim down](https://fitness.allwomenstalk.com/fun-water-workouts-thatll-help-you-slim-down-too/)
-- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
 - [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
+- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
 - [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
-- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
+- [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
+- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
 - [10 Tips for an Effective Work-out ...](https://allwomenstalk.com/10-tips-for-an-effective-work-out/)
 - [7 Ways to Get Back in the Gym ...](https://allwomenstalk.com/7-ways-to-get-back-in-the-gym/)
 
