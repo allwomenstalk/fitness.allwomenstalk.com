@@ -1,12 +1,12 @@
 ---
-title: "10 Simple Exercises That Are Ridiculously Easy and Effective ..."
+title: "10 Simple Exercises That Are Ridiculously 🤐 Easy and Effective ..."
 description: "Squat; Lunge; Plank; Jumping Jack; Push up; More ..."
 url: "https://fitness.allwomenstalk.com/simple-exercises-that-are-ridiculously-effective/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 10 Simple Exercises That Are Ridiculously  Easy and Effective ...
+# 10 Simple Exercises That Are Ridiculously 🤐 Easy and Effective ...
 
 Sometimes to see results all we need to do is keep it simple. If you stick to simple, effective exercises combined with healthy eating choices you can transform your body. If we overthink our workouts and make them too complicated we will be less likely to stay on track. This is especially the case if you are new to fitness. So let’s get back to the basics and start with these simple exercises that yield some serious results. And make sure you stay consistent so you can begin to see and feel the difference from your efforts. Let’s keep it simple and make some serious change starting now!
 
@@ -42,16 +42,16 @@ So bring it back to the basics and be ready to achieve ridiculous results! You w
 
 ## Related Posts
 
-- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
-- [calories burned pumping](https://fitness.allwomenstalk.com/how-to-get-your-heart-pumping-and-burn-plenty-of-fat/)
-- [10 Motivational Ways to Get Yourself to Exercise f...](https://fitene.com/motivational-ways-to-get-yourself-to-exercise-for-super-lazy-girls/)
-- [Finding the Right Workout for Your Mood to Make Yo...](https://fitness.allwomenstalk.com/choose-your-workout-to-suit-your-mood-and-feel-amazing/)
 - [7 Steps to Having Your Most Successful Run Ever .....](https://running.allwomenstalk.com/follow-these-steps-for-your-best-run-yet/)
-- [Health Stats for Those Who Need Extra Motivation t...](https://fitness.allwomenstalk.com/health-stats-for-those-who-need-extra-motivation-to-get-off-the-couch/)
-- [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
-- [10 Workouts That Will Beat You up in a Good Way .....](https://fitness.allwomenstalk.com/workouts-that-wont-be-easy-on-you/)
+- [10 Motivational Ways to Get Yourself to Exercise f...](https://fitene.com/motivational-ways-to-get-yourself-to-exercise-for-super-lazy-girls/)
 - [10 Tips for Girls Wanting to Start a Summer Run Ro...](https://running.allwomenstalk.com/tips-for-those-who-want-to-start-a-summertime-running-routine/)
+- [10 Workouts That Will Beat You up in a Good Way .....](https://fitness.allwomenstalk.com/workouts-that-wont-be-easy-on-you/)
+- [Finding the Right Workout for Your Mood to Make Yo...](https://fitness.allwomenstalk.com/choose-your-workout-to-suit-your-mood-and-feel-amazing/)
+- [Health Stats for Those Who Need Extra Motivation t...](https://fitness.allwomenstalk.com/health-stats-for-those-who-need-extra-motivation-to-get-off-the-couch/)
+- [Put Your Fitness to the Test with These Challenges...](https://fitness.allwomenstalk.com/put-your-fitness-to-the-test-with-these-challenges-fitness/)
 - [The Positive Effects of Exercise on Your Body afte...](https://fitness.allwomenstalk.com/how-does-your-life-change-after-one-week-of-exercise/)
+- [Fab Tips to Help You Start Exercising after a Brea...](https://fitness.allwomenstalk.com/tips-for-easing-back-into-your-workout-after-a-lazy-period/)
+- [calories burned pumping](https://fitness.allwomenstalk.com/how-to-get-your-heart-pumping-and-burn-plenty-of-fat/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [8 Surprisingly Effective Fitness Fads You Have to ...](https://health.allwomenstalk.com/surprisingly-effective-fitness-fads-you-have-to-try/)
 

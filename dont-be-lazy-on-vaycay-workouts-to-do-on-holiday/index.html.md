@@ -1,12 +1,12 @@
 ---
-title: "Dont Be Lazy on Vaycay - 7 Workouts to do on Holiday ..."
+title: "Don't Be Lazy on Vaycay - 7 Workouts to do on Holiday ..."
 description: "Beach Running; Hiking; Plank on the Beach; Walk when You Can; Biking to Explore; More ..."
 url: "https://fitness.allwomenstalk.com/dont-be-lazy-on-vaycay-workouts-to-do-on-holiday/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Dont Be Lazy on Vaycay \- 7 Workouts to do on Holiday ...
+# Don't Be Lazy on Vaycay \- 7 Workouts to do on Holiday ...
 
 As I write this I feel this is so fitting because I am packing for a short vacation and planning when I will fit my workouts in. Vacation time is not about countless hours exercising since you have time off from work but it is about staying in shape. If you are like me and you want to indulge a little with food on vacation, you may want to balance this by staying active. But this does not mean you have to stress over non -stop fitness. Simple things you can do like an early run, hiking, biking, and so much more can help you to see the sights and stay slim. So plan your vacation the healthy way with workouts like these:
 
@@ -42,16 +42,16 @@ With all these super ideas of how to stay fit and have fun on vacation, which wo
 
 ## Related Posts
 
-- [Train for a 5k with These 7 Intense Exercises ...](https://running.allwomenstalk.com/train-for-a-5k-with-these-intense-exercises/)
-- [How to Get the Most out of Every Workout ...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-every-workout/)
-- [boost endurance](https://fitness.allwomenstalk.com/boost-your-endurance-with-these-practices/)
-- [7 Yoga Poses for Better Posture ...](https://health.allwomenstalk.com/yoga-poses-for-better-posture/)
 - [calf raises calories burned](https://fitness.allwomenstalk.com/calf-exercises-that-will-make-you-look-fantastic-in-shorts/)
+- [Why You're Not Seeing Results after Working out .....](https://fitness.allwomenstalk.com/why-youre-not-seeing-results-after-working-out/)
 - [advantages of working out in the morning](https://fitness.allwomenstalk.com/why-should-women-work-out-in-the-morning/)
-- [Wake up and do These Early Morning Exercises ...](https://fitness.allwomenstalk.com/wake-up-and-do-these-early-morning-exercises/)
-- [Why Youre Not Seeing Results after Working out ...](https://fitness.allwomenstalk.com/why-youre-not-seeing-results-after-working-out/)
+- [How to Get the Most out of Every Workout ...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-every-workout/)
 - [Exercise Hacks for Better Workouts ...](https://fitness.allwomenstalk.com/exercise-hacks-for-better-workouts/)
+- [Wake up and do These Early Morning Exercises ...](https://fitness.allwomenstalk.com/wake-up-and-do-these-early-morning-exercises/)
 - [7 Arm Exercises for Looking Flawless in Tank Tops ...](https://fitness.allwomenstalk.com/arm-exercises-for-looking-flawless-in-tank-tops/)
+- [7 Yoga Poses for Better Posture ...](https://health.allwomenstalk.com/yoga-poses-for-better-posture/)
+- [Train for a 5k with These 7 Intense Exercises ...](https://running.allwomenstalk.com/train-for-a-5k-with-these-intense-exercises/)
+- [boost endurance](https://fitness.allwomenstalk.com/boost-your-endurance-with-these-practices/)
 - [7 Ways to Work out While Traveling ...](https://allwomenstalk.com/7-ways-to-work-out-while-traveling/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

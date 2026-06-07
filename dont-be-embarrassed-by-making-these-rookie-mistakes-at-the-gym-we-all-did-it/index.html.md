@@ -1,12 +1,12 @@
 ---
-title: "Dont Be Embarrassed by Making These Rookie Mistakes at the Gym - We All Did It ..."
+title: "Don't Be Embarrassed by Making These Rookie Mistakes at the Gym - We All Did It ..."
 description: "You Wore a Regular Bra and Tried to Work out; You Only do Half Lifts; Not Keeping Your Back Straight when Doing Squats; Doing Too Much in One Day; Jerking Movements; More ..."
 url: "https://fitness.allwomenstalk.com/dont-be-embarrassed-by-making-these-rookie-mistakes-at-the-gym-we-all-did-it/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Dont Be Embarrassed by Making These Rookie Mistakes at the Gym \- We All Did It ...
+# Don't Be Embarrassed by Making These Rookie Mistakes at the Gym \- We All Did It ...
 
 It can be intimidating the first time you go to a gym. Even if you have the luxury of one of the trainers guiding you through your first session, you will still make mistakes. But that’s ok – we all did it. And the most important thing is that you’re at the gym, working out, bettering your health. Here are the most common rookie mistakes at the gym – and how not to make them.
 
@@ -42,16 +42,16 @@ Follow these few tips and you can look like a professional even on your first da
 
 ## Related Posts
 
-- [exercises for long legs](https://fitness.allwomenstalk.com/leg-workouts-you-must-be-already-doing-to-rock-your-jeans-shorts/)
-- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
 - [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
-- [the work gym](https://fitness.allwomenstalk.com/gym-to-office-how-to-go-from-workout-to-work/)
-- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
-- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
-- [300 ab workout](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
 - [workouts to slim down](https://fitness.allwomenstalk.com/fun-water-workouts-thatll-help-you-slim-down-too/)
-- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
 - [swimming shake](https://fitness.allwomenstalk.com/ways-to-shake-up-your-swimming-routine/)
+- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
+- [300 ab workout](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
+- [the work gym](https://fitness.allwomenstalk.com/gym-to-office-how-to-go-from-workout-to-work/)
+- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
+- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
+- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
+- [exercises for long legs](https://fitness.allwomenstalk.com/leg-workouts-you-must-be-already-doing-to-rock-your-jeans-shorts/)
 - [8 Mistakes to Avoid when Exercising ...](https://health.allwomenstalk.com/mistakes-to-avoid-when-exercising/)
 - [10 Most Common Work-out Mistakes ...](https://fitene.com/10-most-common-work-out-mistakes/)
 

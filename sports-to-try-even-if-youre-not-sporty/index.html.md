@@ -1,12 +1,12 @@
 ---
-title: "7 Sports to Try Even if Youre Not Sporty ..."
+title: "7 Sports to Try Even if You're Not Sporty ..."
 description: "Tennis; Badminton; Cross Country Skiing; Bowling; Slow Pitch Softball; More ..."
 url: "https://fitness.allwomenstalk.com/sports-to-try-even-if-youre-not-sporty/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Sports to Try Even if Youre Not Sporty ...
+# 7 Sports to Try Even if You're Not Sporty ...
 
 Even if you don’t consider yourself to be a sporty person, there are sports to try which may change your mind. Whether you’re looking for an indoor adventure or some outdoor time in the sun, there are sports to try which will suit your mood. Don't worry, you’re not trying to make it to the Olympics; you’re just trying to move that bod a little more. Remember, the key to playing sports is the “play” part and you just might find yourself spending time with your new healthy addiction!
 
@@ -56,16 +56,16 @@ Sports can be the competitive variety, or the relaxed sort. It’s all up to you
 
 ## Related Posts
 
-- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
-- [stuff to do with your dad](https://teen.allwomenstalk.com/fun-things-you-can-do-with-your-dad/)
-- [how to have fun at a party without drinking](https://lifestyle.allwomenstalk.com/ways-to-party-without-alcohol/)
+- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-st-patricks-day-if-youre-under-21/)
 - [day out activities](https://lifestyle.allwomenstalk.com/perfect-things-to-do-for-a-girls-day-out/)
-- [how to pass by time](https://lifestyle.allwomenstalk.com/ways-to-pass-time-when-youre-bored/)
-- [engagement party fun ideas](https://wedding.allwomenstalk.com/super-fun-engagement-party-ideas/)
-- [womens slumber party ideas](https://teen.allwomenstalk.com/fun-ideas-for-a-slumber-party/)
-- [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
-- [how to celebrate st patricks day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
 - [what do you do at a bachelorette party](https://wedding.allwomenstalk.com/fabulous-things-you-can-do-instead-of-a-bachelorette-party/)
+- [how to celebrate st patrick's day](https://lifestyle.allwomenstalk.com/ways-to-celebrate-saint-patricks-day/)
+- [how to have fun at a party without drinking](https://lifestyle.allwomenstalk.com/ways-to-party-without-alcohol/)
+- [to help the community](https://inspiration.allwomenstalk.com/websites-to-help-you-get-involved-in-your-community/)
+- [engagement party fun ideas](https://wedding.allwomenstalk.com/super-fun-engagement-party-ideas/)
+- [how to pass by time](https://lifestyle.allwomenstalk.com/ways-to-pass-time-when-youre-bored/)
+- [stuff to do with your dad](https://teen.allwomenstalk.com/fun-things-you-can-do-with-your-dad/)
+- [women's slumber party ideas](https://teen.allwomenstalk.com/fun-ideas-for-a-slumber-party/)
 - [7 Ways to Have Fun This Winter ...](https://allwomenstalk.com/7-ways-to-have-fun-this-winter/)
 - [6 Sports to Try This Spring ...](https://allwomenstalk.com/6-sports-to-try-this-spring/)
 

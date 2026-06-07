@@ -1,12 +1,12 @@
 ---
-title: "Fitness Tips from Miss Americas Trainer ..."
+title: "Fitness Tips from Miss America's Trainer ..."
 description: "Hamstring Exercises; Lunges; Posture; Cardio; Eating Healthy; More ..."
 url: "https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Fitness Tips from Miss Americas Trainer ...
+# Fitness Tips from Miss America's Trainer ...
 
 Stephen P. Smith was Betty Cantrell, the newly crowned Miss America's, trainer. He's also the founder of Viva Fitness, which means he has a lot of experience when it comes to exercising. Lucky for us, he recently sat down with [Pop Sugar](https://www.popsugar.com/fitness/Miss-America-Diet-Fitness-Advice-38506198) an gave them these helpful fitness tips:
 
@@ -34,16 +34,16 @@ Stephen helped Betty Cantrell get fit, and she won the competition, so you might
 
 ## Related Posts
 
-- [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
-- [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
-- [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
-- [30 minute bodyweight workout](https://fitness.allwomenstalk.com/skip-the-gym-with-these-bodyweight-exercises-you-can-do-anywhere/)
-- [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
-- [30 day ab and arm challenge](https://fitness.allwomenstalk.com/try-the-day-abdominal-challenge/)
-- [run without bra](https://fitness.allwomenstalk.com/dont-run-a-5k-without-these-things-in-your-bag/)
-- [how to look taller naturally](https://fitness.allwomenstalk.com/exercises-thatll-help-you-look-taller/)
-- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
 - [how to get used to exercise](https://fitness.allwomenstalk.com/ways-to-get-used-to-exercising-in-the-a-m/)
+- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
+- [30 day ab and arm challenge](https://fitness.allwomenstalk.com/try-the-day-abdominal-challenge/)
+- [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
+- [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
+- [run without bra](https://fitness.allwomenstalk.com/dont-run-a-5k-without-these-things-in-your-bag/)
+- [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
+- [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
+- [30 minute bodyweight workout](https://fitness.allwomenstalk.com/skip-the-gym-with-these-bodyweight-exercises-you-can-do-anywhere/)
+- [how to look taller naturally](https://fitness.allwomenstalk.com/exercises-thatll-help-you-look-taller/)
 - [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
 - [7 Secrets of Fit Women That You Should Know ...](https://weightloss.allwomenstalk.com/secrets-of-fit-women-that-you-should-know/)
 

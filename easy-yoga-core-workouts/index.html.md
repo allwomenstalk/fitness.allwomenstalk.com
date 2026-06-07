@@ -3,7 +3,7 @@ title: "Easy Yoga Core Workouts No Equipment Necessary ..."
 description: "Planks; Downward Facing Dog; Boat Pose; More ..."
 url: "https://fitness.allwomenstalk.com/easy-yoga-core-workouts/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Easy Yoga Core Workouts No Equipment Necessary ...
@@ -26,18 +26,18 @@ Get up off the couch, ditch the chips, and try these 3 core workouts. You’re w
 
 ## Related Posts
 
-- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
-- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
+- [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
 - [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
-- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
-- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
-- [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
-- [Yoga for the Time-Challenged Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
+- [Yoga for the Time-Challenged, Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 
 ## Site Information
 

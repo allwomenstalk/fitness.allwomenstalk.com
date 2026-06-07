@@ -1,12 +1,12 @@
 ---
-title: "How to Get a Six-Pack when Youre on Your Feet ..."
+title: "How to Get a Six-Pack when You're on Your Feet ..."
 description: "Torso Rotations; Standing Bicycle; Rotating Deadlift; Extended Toe Touch; High Knee Chops; More ..."
 url: "https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# How to Get a Six\-Pack when Youre on Your Feet ...
+# How to Get a Six\-Pack when You're on Your Feet ...
 
 People tend to think that the only way to work out your abdominal muscles is by laying down, but there are other alternatives you can do to work out your abs while standing. Standing workouts not only focus on your abs, but also give attention to other muscles in the body and help to improve your posture. Let's take a look at some of these routines you should try to work out your abs while standing.
 
@@ -56,16 +56,16 @@ Remember to always keep your abs tight and pressed in as you workout. You can do
 
 ## Related Posts
 
-- [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
 - [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
 - [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
+- [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
+- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
+- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
 - [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
-- [im too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
 - [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
+- [i'm too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
 - [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
 - [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
-- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

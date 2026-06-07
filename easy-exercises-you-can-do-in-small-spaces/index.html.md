@@ -1,12 +1,12 @@
 ---
-title: "Dont Let a Lack of Space Keep You from Exercising ..."
+title: "Don't Let a Lack of Space Keep You from Exercising ..."
 description: "Jumping Jacks; Weighted Pushups; Jumping Rope; Body Weight Exercises; Resistance Training; More ..."
 url: "https://fitness.allwomenstalk.com/easy-exercises-you-can-do-in-small-spaces/"
 category: "fitness"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Dont Let a Lack of Space Keep You from Exercising ...
+# Don't Let a Lack of Space Keep You from Exercising ...
 
 So are you feeling cramped and looking for exercises you can do in small spaces? There are many exercises you can do in your living room, dorm room or anywhere else you can find the space. You do not need a lot of space, just the energy to push yourself to make the most out of your workout. And if you decide to exercise at home, you will never have to worry about a high priced gym membership or losing the motivation as you drive to the gym. So are you ready to get moving? Then here are the exercises you can do in small spaces:
 
@@ -43,15 +43,15 @@ Hope you enjoyed these workouts that you can perform right in your own small spa
 ## Related Posts
 
 - [foam roller ab workout](https://fitness.allwomenstalk.com/exercises-using-a-foam-roller/)
-- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
-- [7 Times when Its Okay to Skip a Workout ...](https://fitness.allwomenstalk.com/times-when-its-okay-to-skip-a-workout/)
-- [Trying to Strengthen Your Body Dont Overlook These...](https://fitness.allwomenstalk.com/overlooked-sports-for-strengthening-your-body/)
+- [7 Times when It's Okay to Skip a Workout ...](https://fitness.allwomenstalk.com/times-when-its-okay-to-skip-a-workout/)
+- [7 Holiday Fitness Tips to Say Yes to ...](https://fitness.allwomenstalk.com/holiday-fitness-tips-to-say-yes-to/)
+- [7 Exercises to Get You Hot for the Holidays ...](https://fitness.allwomenstalk.com/exercises-to-get-you-hot-for-the-holidays/)
 - [7 Plyometric Moves That Burn Major Calories ...](https://fitness.allwomenstalk.com/plyometric-moves-that-burn-major-calories/)
 - [exercises you can do at your desk](https://fitness.allwomenstalk.com/exercises-you-can-do-at-your-desk/)
-- [7 Exercises to Get You Hot for the Holidays ...](https://fitness.allwomenstalk.com/exercises-to-get-you-hot-for-the-holidays/)
-- [7 Holiday Fitness Tips to Say Yes to ...](https://fitness.allwomenstalk.com/holiday-fitness-tips-to-say-yes-to/)
-- [7 Hot Body Workouts for the New Year ...](https://fitness.allwomenstalk.com/hot-body-workouts-for-the-new-year/)
+- [Trying to Strengthen Your Body? Don't Overlook The...](https://fitness.allwomenstalk.com/overlooked-sports-for-strengthening-your-body/)
+- [7 Exercises for Quads without Using Weights ...](https://fitness.allwomenstalk.com/exercises-for-quads-without-using-weights/)
 - [glutes targeted exercises](https://fitness.allwomenstalk.com/exercises-that-target-your-glutes/)
+- [7 Hot Body Workouts for the New Year ...](https://fitness.allwomenstalk.com/hot-body-workouts-for-the-new-year/)
 - [7 Tips to Make More Time for Exercise ...](https://health.allwomenstalk.com/tips-to-make-more-time-for-exercise/)
 - [12 Ways to Make Time for Exercise ...](https://allwomenstalk.com/12-ways-to-make-time-for-exercise/)
 
