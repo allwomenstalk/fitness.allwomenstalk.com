@@ -3,7 +3,7 @@ title: "Urban Yoga: She Did Yoga Where?"
 description: "Under the Overpass; Step It up; On the Couch; Scaffolding; Puesto De Frutas; More ..."
 url: "https://fitness.allwomenstalk.com/urban-yoga-she-did-yoga-where/"
 category: "fitness"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Urban Yoga: She Did Yoga Where?
@@ -72,16 +72,16 @@ Want to see more? You can buy Anja's "Urban Yoga" book at [theurbanyoga.com](htt
 
 ## Related Posts
 
-- [Justin Timberlake and Jimmy Fallon Caught Dancing ...](https://celebs.allwomenstalk.com/justin-timberlake-and-jimmy-fallon-caught-dancing-together/)
-- [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
-- [gigi hadid ab workout](https://fitness.allwomenstalk.com/how-gigi-hadid-gets-through-the-dreaded-plank-position/)
-- [twilight characters powers](https://twilight.allwomenstalk.com/a-biography-on-bella-swan-the-twilight-character-not-kristen-stewert/)
-- [In Celebration of Meryl Streep. Happy Birthday!](https://movies.allwomenstalk.com/so-many-choices-the-best-meryl-streep-movies/)
 - [Breast Cancer Awareness in New Jersey - Tamela Bee...](https://allwomenstalk.com/breast-cancer-awareness-new-jersey-tamela-beene-story/)
 - [kristen stewart brother cameron](https://twilight.allwomenstalk.com/a-biography-on-kristen-stewart/)
-- [This Week's #GotAnyTips100 Winner is ... Valentina...](https://weightloss.allwomenstalk.com/this-weeks-gotanytips100-winner-is-valentina/)
 - [賓迪・歐文](https://celebs.allwomenstalk.com/photos-of-bindi-irwin-that-prove-shes-just-as-great-as-her-dad/)
+- [This Week's #GotAnyTips100 Winner is ... Valentina...](https://weightloss.allwomenstalk.com/this-weeks-gotanytips100-winner-is-valentina/)
+- [Justin Timberlake and Jimmy Fallon Caught Dancing ...](https://celebs.allwomenstalk.com/justin-timberlake-and-jimmy-fallon-caught-dancing-together/)
+- [gigi hadid ab workout](https://fitness.allwomenstalk.com/how-gigi-hadid-gets-through-the-dreaded-plank-position/)
+- [In Celebration of Meryl Streep. Happy Birthday!](https://movies.allwomenstalk.com/so-many-choices-the-best-meryl-streep-movies/)
 - [kylie cosmetics losing money](https://celebs.allwomenstalk.com/the-rise-and-rise-of-kylie-jenner/)
+- [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
+- [twilight characters powers](https://twilight.allwomenstalk.com/a-biography-on-bella-swan-the-twilight-character-not-kristen-stewert/)
 - [Lindsay's Rehabbing: is She or Isn't She?](https://celebs.allwomenstalk.com/lindsays-rehabbing-is-she-or-isnt-she/)
 - [Does Serena Williams Have a Hot Body?](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
 
