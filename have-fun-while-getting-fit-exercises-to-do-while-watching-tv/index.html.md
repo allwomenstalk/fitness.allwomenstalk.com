@@ -3,7 +3,7 @@ title: "Have Fun While Getting Fit - Exercises to do While Watching TV ..."
 description: "Lunge and Plank; Burpee Fun; Resistance Band Workout; 12 Minutes of Madness; Jump Rope It out; More ..."
 url: "https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/"
 category: "fitness"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Have Fun While Getting Fit \- Exercises to do While Watching TV ...
@@ -42,16 +42,16 @@ Catch up on some solid TV time as you work out with these great routines! Are yo
 
 ## Related Posts
 
-- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
-- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
-- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
-- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
-- [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
-- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
-- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
-- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
+- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
+- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
+- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
 - [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
+- [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
+- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
+- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
+- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 - [8 Smart Ways to Exercise While Pregnant ...](https://parenting.allwomenstalk.com/smart-ways-to-exercise-while-pregnant/)
 

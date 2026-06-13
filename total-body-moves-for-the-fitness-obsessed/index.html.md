@@ -3,7 +3,7 @@ title: "Inspiring Total Body Moves for the Fitness Obsessed ..."
 description: "Burpee; Lunge Bicep Curl; Reverse Lunge Tricep Kickback; Plank; Reverse Plank; More ..."
 url: "https://fitness.allwomenstalk.com/total-body-moves-for-the-fitness-obsessed/"
 category: "fitness"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Inspiring Total Body Moves for the Fitness Obsessed ...
@@ -42,16 +42,16 @@ So hey fitness obsessed are you ready to take one step closer to achieving your 
 
 ## Related Posts
 
-- [101 Fitness and Style Inspo Every Perfectionist Ne...](https://fitness.allwomenstalk.com/fitness-and-style-inspo-every-perfectionist-needs-to-see/)
-- [7 Days , 7 Yoga Tutorials to Get You Started on Yo...](https://fitness.allwomenstalk.com/days-7-yoga-tutorials/)
-- [Workout Prep Hacks for Girls Who Want Fast Results...](https://fitness.allwomenstalk.com/workout-prep-hacks-for-girls-who-want-fast-results-now/)
 - [lenation](https://fitness.allwomenstalk.com/fit-girls-will-love-these-creative-moves/)
 - [Kick-Ass Running Info for Even the Slowest of Runn...](https://running.allwomenstalk.com/great-news-for-all-the-slow-runners-out-there-including-me/)
-- [7 Ways for Slow Girls to Speed up Their Fitness Mo...](https://fitness.allwomenstalk.com/ways-to-speed-up-your-slow-mo-moves/)
-- [Hacks to Burn More Calories on Your Walks ...](https://weightloss.allwomenstalk.com/hacks-to-burn-more-calories-on-your-walks-2/)
-- [what happens in your brain when you exercise](https://health.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise-2/)
 - [Tricks to Master 🥇 if You're a Girl That Wants to...](https://fitness.allwomenstalk.com/tricks-to-master-if-you-want-to-be-fit/)
+- [7 Days , 7 Yoga Tutorials to Get You Started on Yo...](https://fitness.allwomenstalk.com/days-7-yoga-tutorials/)
+- [Workout Prep Hacks for Girls Who Want Fast Results...](https://fitness.allwomenstalk.com/workout-prep-hacks-for-girls-who-want-fast-results-now/)
+- [Hacks to Burn More Calories on Your Walks ...](https://weightloss.allwomenstalk.com/hacks-to-burn-more-calories-on-your-walks-2/)
+- [101 Fitness and Style Inspo Every Perfectionist Ne...](https://fitness.allwomenstalk.com/fitness-and-style-inspo-every-perfectionist-needs-to-see/)
 - [commercial break workout](https://fitness.allwomenstalk.com/workouts-to-do-in-the-commercial-breaks-for-girls-who-dont-want-to-be-couch-potatoes/)
+- [what happens in your brain when you exercise](https://health.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise-2/)
+- [7 Ways for Slow Girls to Speed up Their Fitness Mo...](https://fitness.allwomenstalk.com/ways-to-speed-up-your-slow-mo-moves/)
 - [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 

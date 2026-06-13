@@ -3,7 +3,7 @@ title: "The Cure to Menstrual Cramps - 7 Exercises to do during Your Period ..."
 description: "Go for a Run; Bike around the Block; Do a Forward Bend; Try the Head to Knee Pose; Go for a Swim; More ..."
 url: "https://fitness.allwomenstalk.com/the-cure-to-menstrual-cramps-exercises-to-do-during-your-period/"
 category: "fitness"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # The Cure to Menstrual Cramps \- 7 Exercises to do during Your Period ...
@@ -42,16 +42,16 @@ Your life shouldn't come to a halt when your period arrives. You can still work 
 
 ## Related Posts
 
+- [overcome jet lag](https://travel.allwomenstalk.com/the-most-natural-ways-to-overcome-jet-lag/)
+- [natural remedies for teenage menstrual cramps](https://health.allwomenstalk.com/natural-remedies-for-menstrual-cramps-and-pains/)
+- [does apple cider vinegar help itchy skin](https://skincare.allwomenstalk.com/say-goodbye-to-itchy-skin-with-these-home-remedies/)
 - [how do you get rid of hickeys](https://skincare.allwomenstalk.com/home-remedies-to-get-rid-of-hickeys/)
-- [What Are the Tricks to Avoid Urinary Tract Infecti...](https://health.allwomenstalk.com/what-are-the-tricks-to-avoid-urinary-tract-infections/)
-- [natural remedy for period cramps](https://health.allwomenstalk.com/natural-remedies-for-period-pain-and-cramps/)
 - [how to get rid of red eyes from allergies](https://beauty.allwomenstalk.com/how-to-cure-your-red-eyes-from-allergies/)
 - [how to make a good bath](https://beauty.allwomenstalk.com/heres-what-you-are-doing-all-wrong-when-taking-a-bath/)
-- [how to take care of a fresh piercing](https://jewelry.allwomenstalk.com/the-correct-way-to-take-care-of-a-new-piercing/)
-- [does apple cider vinegar help itchy skin](https://skincare.allwomenstalk.com/say-goodbye-to-itchy-skin-with-these-home-remedies/)
-- [overcome jet lag](https://travel.allwomenstalk.com/the-most-natural-ways-to-overcome-jet-lag/)
 - [foods to cure a headache](https://food.allwomenstalk.com/foods-that-will-help-cure-your-headache/)
-- [natural remedies for teenage menstrual cramps](https://health.allwomenstalk.com/natural-remedies-for-menstrual-cramps-and-pains/)
+- [natural remedy for period cramps](https://health.allwomenstalk.com/natural-remedies-for-period-pain-and-cramps/)
+- [how to take care of a fresh piercing](https://jewelry.allwomenstalk.com/the-correct-way-to-take-care-of-a-new-piercing/)
+- [What Are the Tricks to Avoid Urinary Tract Infecti...](https://health.allwomenstalk.com/what-are-the-tricks-to-avoid-urinary-tract-infections/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 - [7 Ingenious Exercises That Could Help Those Horrib...](https://health.allwomenstalk.com/ingenious-exercises-that-could-help-those-horribly-painful-period-cramps/)
 

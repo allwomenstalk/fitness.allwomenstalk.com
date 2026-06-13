@@ -3,7 +3,7 @@ title: "How to Burn Calories While Doing Business ..."
 description: "Walk While on a Business Call; Sit on an Exercise Ball at Work; Take the Stairs; Visit a Coworker Instead of an Email; Walk at Lunch with a Coworker While Talking Business; More ..."
 url: "https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/"
 category: "fitness"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # How to Burn Calories While Doing Business ...
@@ -56,16 +56,16 @@ Finding time for fitness is all up to you but with time management and the right
 
 ## Related Posts
 
-- [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
-- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
-- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
-- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
-- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
 - [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
+- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
 - [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
-- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
 - [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
 - [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
+- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
+- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
+- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
+- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
+- [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
 - [10 Ways to Burn Calories when at Work ...](https://weightloss.allwomenstalk.com/ways-to-burn-calories-when-at-work/)
 - [7 Ways to Burn Calories While Spring Cleaning ...](https://weightloss.allwomenstalk.com/ways-to-burn-calories-while-spring-cleaning/)
 
