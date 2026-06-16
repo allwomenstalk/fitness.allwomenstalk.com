@@ -3,7 +3,7 @@ title: "21 Fitness Goals for the Year 2018 ..."
 description: "Her Fab Beach Body; Her Beautiful Arms; Her Game Face; Her Abs; Her Running Buddy; More ..."
 url: "https://fitness.allwomenstalk.com/fitness-goals-for-the-year/"
 category: "fitness"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 21 Fitness Goals for the Year 2018 ...
@@ -101,15 +101,15 @@ It helps to bring you own cheerleader!
 ## Related Posts
 
 - [7 Ways Strength Training Can Help You during a Run...](https://fitness.allwomenstalk.com/ways-strength-training-can-help-you-during-a-run/)
-- [Work out Your Entire Body with This One Move ...](https://fitness.allwomenstalk.com/work-out-your-entire-body-with-this-one-move/)
+- [will resistance bands help lose weight](https://fitness.allwomenstalk.com/how-resistance-bands-can-help-you-get-fit-faster/)
 - [What It's like to Hit the Gym after the Holidays ....](https://fitness.allwomenstalk.com/what-its-like-to-hit-the-gym-after-the-holidays/)
 - [7 Fitness Resolutions That Are Actually Doable for...](https://fitness.allwomenstalk.com/fitness-resolutions-that-are-actually-doable-for-any-age/)
-- [will resistance bands help lose weight](https://fitness.allwomenstalk.com/how-resistance-bands-can-help-you-get-fit-faster/)
-- [things to think about while running](https://running.allwomenstalk.com/productive-things-to-think-about-during-your-run-time/)
+- [Work out Your Entire Body with This One Move ...](https://fitness.allwomenstalk.com/work-out-your-entire-body-with-this-one-move/)
+- [Workout Gear That Will Help You Stick to Your New ...](https://fitness.allwomenstalk.com/workout-gear-that-will-help-you-stick-to-your-new-years-resolutions/)
 - [The 15-Minute ⏱ Workout Video for Complete Beginne...](https://fitness.allwomenstalk.com/the-15-minute-workout-video-for-complete-beginners/)
+- [things to think about while running](https://running.allwomenstalk.com/productive-things-to-think-about-during-your-run-time/)
 - [How to Fit in Exercise when You're Busier than Eve...](https://fitness.allwomenstalk.com/how-to-fit-in-exercise-when-youre-busier-than-ever/)
 - [We All Experience These 7 Things during an Intense...](https://fitness.allwomenstalk.com/we-all-experience-these-things-during-an-intense-workout/)
-- [Workout Gear That Will Help You Stick to Your New ...](https://fitness.allwomenstalk.com/workout-gear-that-will-help-you-stick-to-your-new-years-resolutions/)
 - [8 Important Health and Fitness Goals for 2013 ...](https://weightloss.allwomenstalk.com/important-health-and-fitness-goals-for/)
 - [8 Movies to Inspire You to Get Fit ...](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 
