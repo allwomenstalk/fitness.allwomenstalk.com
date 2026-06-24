@@ -3,7 +3,7 @@ title: "8 Workouts to do While Watching TV ..."
 description: "Leg Lifts; Leg Scissors; Lunges; Squats and Burpees; Chair Leg Lifts; More ..."
 url: "https://fitness.allwomenstalk.com/workouts-to-do-while-watching-tv/"
 category: "fitness"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 8 Workouts to do While Watching TV ...
@@ -62,16 +62,16 @@ Try some quick and easy workouts to do while watching TV, and mix and match your
 
 ## Related Posts
 
-- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
-- [bingo wing exercises with resistance bands](https://fitness.allwomenstalk.com/best-exercises-to-banish-those-bingo-wings/)
-- [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [how to push yourself to workout](https://fitness.allwomenstalk.com/reasons-to-push-yourself-in-your-workout/)
-- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
-- [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
 - [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
+- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
+- [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
+- [bingo wing exercises with resistance bands](https://fitness.allwomenstalk.com/best-exercises-to-banish-those-bingo-wings/)
+- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
+- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
+- [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [exercises that burn most calories](https://fitness.allwomenstalk.com/fun-workouts-that-burn-the-most-calories/)
 - [what to workout on saturday](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
-- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 - [8 Tips for Working out at Home ...](https://health.allwomenstalk.com/tips-for-working-out-at-home/)
 
