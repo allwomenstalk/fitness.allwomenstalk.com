@@ -3,7 +3,7 @@ title: "Small Dorm Rooms Are No Match for These Fun and Effective Exercises ..."
 description: "Squats; Planks; Sit-Ups; Butt Kicks; Simple Weight Lifting; More ..."
 url: "https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/"
 category: "fitness"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Small Dorm Rooms Are No Match for These Fun and Effective Exercises ...
@@ -24,7 +24,7 @@ Sit-ups are a classic exercise and they're simple to do. All you need is somethi
 
 ## 4. Butt Kicks
 
-If you're ready for some cardio, butt kicks are just the thing to get your heart rate up. These work most of your lower body and will have your legs and butt burning. Basically, you just run in place, but try to kick your heels up to your butt as you run. It's more difficult than running in place. Try it in circuits of running in place and then butt kicks.
+If you're ready for some cardio, butt kicks are just the thing to get your [heart rate](https://calculatorsnest.com/heart-rate/) up. These work most of your lower body and will have your legs and butt burning. Basically, you just run in place, but try to kick your heels up to your butt as you run. It's more difficult than running in place. Try it in circuits of running in place and then butt kicks.
 
 ## 5. Simple Weight Lifting
 
@@ -42,16 +42,16 @@ College isn't an excuse not to exercise. While your food choices might be abysma
 
 ## Related Posts
 
+- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
+- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
 - [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
+- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
+- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
 - [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
 - [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
-- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
-- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
 - [i'm too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
-- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
-- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
 - [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
-- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
+- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
 - [7 Unexpected Places to Sneak in a Workout ...](https://health.allwomenstalk.com/unexpected-places-to-sneak-in-a-workout/)
 - [8 Easy Exercises to do Anywhere ...](https://health.allwomenstalk.com/easy-exercises-to-do-anywhere/)
 

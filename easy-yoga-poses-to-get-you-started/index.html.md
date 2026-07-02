@@ -3,7 +3,7 @@ title: "7 Easy Yoga Poses to Get You Started ..."
 description: "Table Pose; Downward Dog; Crescent Pose; Chair Pose; Upward Dog; More ..."
 url: "https://fitness.allwomenstalk.com/easy-yoga-poses-to-get-you-started/"
 category: "fitness"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Easy Yoga Poses to Get You Started ...
@@ -56,16 +56,16 @@ Now you know seven great yoga poses that are simple enough to do every day. Itâ€
 
 ## Related Posts
 
-- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
-- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
-- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
-- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
-- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
-- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
+- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
+- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
 - [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
+- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
+- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
+- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
+- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 

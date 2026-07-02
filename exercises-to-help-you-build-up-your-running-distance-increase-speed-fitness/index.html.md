@@ -3,7 +3,7 @@ title: "7 Exercises to Help You Build up Your Running Distance & Increase Speed 
 description: "Running; Lunges; Burpees; Plyometrics; Plank; More ..."
 url: "https://fitness.allwomenstalk.com/exercises-to-help-you-build-up-your-running-distance-increase-speed-fitness/"
 category: "fitness"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Exercises to Help You Build up Your Running Distance & Increase Speed Fitness ...
@@ -42,16 +42,16 @@ So tell me what distance are you training for and what is your race time goal? W
 
 ## Related Posts
 
-- [13 Awesome Pieces of Home Exercise Equipment ...](https://fitness.allwomenstalk.com/awesome-pieces-of-home-exercise-equipment/)
-- [7 Ways Exercise Can Boost Other Areas of Your Life...](https://health.allwomenstalk.com/ways-exercise-can-boost-other-areas-of-your-life-too/)
-- [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
-- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
-- [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
 - [7 Exercises That Can Be Done with or without Weigh...](https://fitness.allwomenstalk.com/exercises-that-can-be-done-with-or-without-weights/)
-- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
-- [quick workouts](https://fitness.allwomenstalk.com/quick-workouts-to-squeeze-into-your-day/)
 - [7 Workouts for a Body to Rock Any Outfit like a Ce...](https://fitness.allwomenstalk.com/workouts-for-a-body-to-rock-any-outfit-like-a-celebrity/)
 - [The Busy Girl's Guide to Starting Yoga ...](https://health.allwomenstalk.com/the-busy-girls-guide-to-starting-yoga/)
+- [quick workouts](https://fitness.allwomenstalk.com/quick-workouts-to-squeeze-into-your-day/)
+- [13 Awesome Pieces of Home Exercise Equipment ...](https://fitness.allwomenstalk.com/awesome-pieces-of-home-exercise-equipment/)
+- [7 Ways Exercise Can Boost Other Areas of Your Life...](https://health.allwomenstalk.com/ways-exercise-can-boost-other-areas-of-your-life-too/)
+- [7 Resolutions to Commit to That Will Take Your Wor...](https://fitness.allwomenstalk.com/resolutions-to-commit-to-that-willtake-your-workout-to-the-next-level/)
+- [7 Exercises to up the Intensity of Your Workouts ....](https://fitness.allwomenstalk.com/exercises-to-up-the-intensity-of-your-workouts/)
+- [cool workout gadgets](https://fitness.allwomenstalk.com/workout-gadgets-you-should-consider/)
+- [7 Fitness Inspirations for 2015 ...](https://inspiration.allwomenstalk.com/fitness-inspirations-for/)
 - [7 Apps to Help You Train for a Marathon ...](https://health.allwomenstalk.com/apps-to-help-you-train-for-a-marathon/)
 - [8 Steps to Train Yourself to Run ...](https://health.allwomenstalk.com/steps-to-train-yourself-to-run/)
 
