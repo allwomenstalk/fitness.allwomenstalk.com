@@ -3,7 +3,7 @@ title: "What to do 🤔 when You Hate Exercise but Want to Be Fit ..."
 description: "Don't Call It Exercise; Don't Compare Yourself; Slow and Steady Wins the Race; Get an Accountability Partner; Attempt Something Different; More ..."
 url: "https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/"
 category: "fitness"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # What to do 🤔 when You Hate Exercise but Want to Be Fit ...
@@ -90,14 +90,14 @@ Sources
 
 ## Related Posts
 
-- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
-- [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
-- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
 - [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
+- [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
+- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [health fitness products](https://fitness.allwomenstalk.com/fitness-products-that-inspire-healthy-habits/)
+- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
 - [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [unique pilates](https://fitness.allwomenstalk.com/pilates-exercises-without-a-reformer/)
-- [health fitness products](https://fitness.allwomenstalk.com/fitness-products-that-inspire-healthy-habits/)
 - [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
 - [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
 - [Practical Reasons to Skip the Gym and Find Another...](https://fitness.allwomenstalk.com/great-reasons-to-skip-the-gym-and-find-alternatives/)

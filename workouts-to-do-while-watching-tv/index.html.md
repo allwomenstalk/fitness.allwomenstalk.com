@@ -3,7 +3,7 @@ title: "8 Workouts to do While Watching TV ..."
 description: "Leg Lifts; Leg Scissors; Lunges; Squats and Burpees; Chair Leg Lifts; More ..."
 url: "https://fitness.allwomenstalk.com/workouts-to-do-while-watching-tv/"
 category: "fitness"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 8 Workouts to do While Watching TV ...
@@ -62,14 +62,14 @@ Try some quick and easy workouts to do while watching TV, and mix and match your
 
 ## Related Posts
 
-- [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
-- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
-- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
-- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
 - [bingo wing exercises with resistance bands](https://fitness.allwomenstalk.com/best-exercises-to-banish-those-bingo-wings/)
 - [how to push yourself to workout](https://fitness.allwomenstalk.com/reasons-to-push-yourself-in-your-workout/)
-- [exercises that burn most calories](https://fitness.allwomenstalk.com/fun-workouts-that-burn-the-most-calories/)
 - [what to workout on saturday](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
+- [exercises that burn most calories](https://fitness.allwomenstalk.com/fun-workouts-that-burn-the-most-calories/)
+- [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
+- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
+- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
+- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
 - [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)

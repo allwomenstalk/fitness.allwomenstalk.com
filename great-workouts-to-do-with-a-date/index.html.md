@@ -3,7 +3,7 @@ title: "7 Great Workouts to do with a Date ..."
 description: "Indoor Rock Climbing; Hiking; A Run and Dinner; Latin Dancing Lessons; Bike Ride and Dinner; More ..."
 url: "https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/"
 category: "fitness"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Great Workouts to do with a Date ...
@@ -42,16 +42,16 @@ Hope you will try some of these workouts with your date! What are the best worko
 
 ## Related Posts
 
-- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
 - [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
-- [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
-- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
+- [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
 - [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
 - [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
-- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
-- [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
-- [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
 - [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
+- [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
+- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
+- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
+- [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
+- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
 - [7 Workouts for Both of You ...](https://health.allwomenstalk.com/7-workouts-for-both-of-you/)
 - [7 Tips for a Jogging Date ...](https://health.allwomenstalk.com/7-tips-for-a-jogging-date/)
 
