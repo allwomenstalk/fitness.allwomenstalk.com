@@ -3,7 +3,7 @@ title: "7 Awesome Basketball Drills to Help You Get in Shape ..."
 description: "Sculpt with Suicides; Ladder Drills; Jumping Rope; Grab a Partner; Wall Sits; More ..."
 url: "https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/"
 category: "fitness"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Awesome Basketball Drills to Help You Get in Shape ...
@@ -43,12 +43,12 @@ With all these basketball player conditioning drills, are you ready to get in sh
 ## Related Posts
 
 - [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
 - [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
-- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
-- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
 - [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
 - [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
+- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
 - [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
 - [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
 - [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
