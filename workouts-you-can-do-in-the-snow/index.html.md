@@ -57,15 +57,15 @@ Winter isn’t my favorite season, but having plenty of fun ways to fit in a wor
 ## Related Posts
 
 - [winter makeup tutorial](https://makeup.allwomenstalk.com/must-read-tips-on-finding-the-right-foundation-for-winter/)
-- [how to make a summer dress work for winter](https://fashion.allwomenstalk.com/brilliant-ways-to-winterize-your-summer-clothes/)
-- [how to be cold in the summer](https://lifestyle.allwomenstalk.com/ways-to-prepare-yourself-for-cold-weather/)
+- [foods to stock up on for winter](https://food.allwomenstalk.com/foods-to-keep-on-hand-for-a-snow-storm/)
 - [great things about winter](https://inspiration.allwomenstalk.com/wonderful-things-to-love-about-winter/)
 - [things to keep in car for winter](https://lifestyle.allwomenstalk.com/items-to-keep-in-your-car-during-winter/)
-- [foods to stock up on for winter](https://food.allwomenstalk.com/foods-to-keep-on-hand-for-a-snow-storm/)
-- [best brands of herbal tea](https://food.allwomenstalk.com/comforting-tea-recipes-to-make-this-winter/)
 - [winter superfoods](https://food.allwomenstalk.com/winter-superfoods-you-should-stock-up-on/)
+- [best brands of herbal tea](https://food.allwomenstalk.com/comforting-tea-recipes-to-make-this-winter/)
+- [how to be cold in the summer](https://lifestyle.allwomenstalk.com/ways-to-prepare-yourself-for-cold-weather/)
 - [mayo clinic bone broth](https://food.allwomenstalk.com/healthy-soups-to-keep-you-warm-and-fill-you/)
 - [hooloo cafe](https://food.allwomenstalk.com/delectable-cafes-in-new-york-to-keep-warm-in-this-winter/)
+- [how to make a summer dress work for winter](https://fashion.allwomenstalk.com/brilliant-ways-to-winterize-your-summer-clothes/)
 - [7 Wonderful Ways to Amp up Your Workout ...](https://weightloss.allwomenstalk.com/wonderful-ways-to-amp-up-your-workout/)
 - [7 Wonderful Tips for Staying in Shape This Winter ...](https://weightloss.allwomenstalk.com/wonderful-tips-for-staying-in-shape-this-winter/)
 

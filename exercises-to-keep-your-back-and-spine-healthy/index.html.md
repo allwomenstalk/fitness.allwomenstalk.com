@@ -42,16 +42,16 @@ You don't want to end up with a hunched back. That's why you should set aside so
 
 ## Related Posts
 
-- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
-- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
-- [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
-- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
-- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
+- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
-- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
 - [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
 - [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
+- [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
+- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
+- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [8 Best Workouts for Women in Their 20's ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-20s/)
 

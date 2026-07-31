@@ -56,16 +56,16 @@ If you want to get fit while learning self-defense, then you should think about 
 
 ## Related Posts
 
-- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
-- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
 - [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
+- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
 - [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
-- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
-- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
 - [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
+- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
 - [7 Unexpected Places to Sneak in a Workout ...](https://health.allwomenstalk.com/unexpected-places-to-sneak-in-a-workout/)
 - [7 Ways to Work out While Traveling ...](https://allwomenstalk.com/7-ways-to-work-out-while-traveling/)
 

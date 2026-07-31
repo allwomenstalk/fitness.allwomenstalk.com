@@ -51,16 +51,16 @@ Exercise can bring more mobility to your life, making it easier for you to live.
 
 ## Related Posts
 
-- [30 day core challenge](https://money.allwomenstalk.com/being-a-contractor-versus-being-an-employee/)
+- [how to get back in shape after holidays](https://fitness.allwomenstalk.com/tips-for-getting-back-into-your-fitness-routine-after-the-holidays/)
+- [how to get tighter abs](https://fitness.allwomenstalk.com/ways-to-tighten-your-abs/)
 - [is 10000 steps a day realistic](https://fitness.allwomenstalk.com/realistic-ways-to-achieve-10000-steps-daily/)
 - [lazy thigh workout](https://fitness.allwomenstalk.com/workout-infographics/)
-- [how to get tighter abs](https://fitness.allwomenstalk.com/ways-to-tighten-your-abs/)
-- [bustymeaning](https://fitness.allwomenstalk.com/fitness-tips-for-busty-girls/)
-- [how to get back in shape after holidays](https://fitness.allwomenstalk.com/tips-for-getting-back-into-your-fitness-routine-after-the-holidays/)
-- [hobbies workout](https://health.allwomenstalk.com/hobbies-that-are-a-workout-for-your-brain/)
-- [best weight loss workout videos](https://fitness.allwomenstalk.com/youtube-workout-videos-that-get-results/)
 - [how to change up your workout routine](https://fitness.allwomenstalk.com/ways-to-change-up-your-fitness-routine/)
+- [30 day core challenge](https://money.allwomenstalk.com/being-a-contractor-versus-being-an-employee/)
+- [bustymeaning](https://fitness.allwomenstalk.com/fitness-tips-for-busty-girls/)
 - [best workout from home programs](https://fitness.allwomenstalk.com/best-home-workout-programs/)
+- [best weight loss workout videos](https://fitness.allwomenstalk.com/youtube-workout-videos-that-get-results/)
+- [hobbies workout](https://health.allwomenstalk.com/hobbies-that-are-a-workout-for-your-brain/)
 - [9 Techniques to Make Yourself Exercise ...](https://weightloss.allwomenstalk.com/9-techniques-to-make-yourself-exercise/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 

@@ -70,16 +70,16 @@ With all the incredible health and fitness writers out there, I know that there 
 
 ## Related Posts
 
-- [tumblrs to follow](https://celebs.allwomenstalk.com/best-celebrity-tumblrs-you-should-follow/)
+- [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
 - [how long to bake salmon](https://food.allwomenstalk.com/amazing-baking-blogs-for-baking-enthusiasts/)
+- [tumblrs to follow](https://celebs.allwomenstalk.com/best-celebrity-tumblrs-you-should-follow/)
+- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
 - [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)
 - [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
-- [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
-- [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
 - [celebrities with lifestyle blogs](https://celebs.allwomenstalk.com/awesome-blogs-run-by-celebrities/)
-- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
-- [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
 - [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
+- [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
+- [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
 - [7 Best Weight Loss Posts ...](https://allwomenstalk.com/7-best-weight-loss-posts/)
 - [7 Best Dieting and Wellness Blogs ...](https://allwomenstalk.com/7-best-dieting-and-wellness-blogs/)
 

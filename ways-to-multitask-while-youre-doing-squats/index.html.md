@@ -42,16 +42,16 @@ Now that you have some great ways to multitask while squatting, get going in per
 
 ## Related Posts
 
-- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
-- [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
 - [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
-- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
-- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
+- [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
 - [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 - [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
+- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
+- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
+- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
 - [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Ways to Spice up Your Workout ...](https://health.allwomenstalk.com/7-ways-to-spice-up-your-workout/)
 

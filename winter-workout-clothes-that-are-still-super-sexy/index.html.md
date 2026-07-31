@@ -56,16 +56,16 @@ You don't have to pile on too many layers before you workout, because you're goi
 
 ## Related Posts
 
-- [cute color combos](https://fashion.allwomenstalk.com/the-cutest-color-combos-to-wear-in-winter/)
-- [spring fall coats](https://fashion.allwomenstalk.com/coats-for-a-perfect-transition-from-winter-to-spring/)
-- [how to wear a crop top over 50](https://fashion.allwomenstalk.com/how-to-wear-crop-tops-in-the-cold/)
-- [oversized sweater and tights](https://fashion.allwomenstalk.com/how-to-wear-an-oversized-sweater-during-winter/)
-- [does a trench coat keep you warm](https://fashion.allwomenstalk.com/the-hottest-coat-trends-thatll-keep-you-warm/)
-- [cute beanies](https://fashion.allwomenstalk.com/cute-beanies-for-when-its-colder/)
-- [trendy raincoats](https://fashion.allwomenstalk.com/best-and-most-fashionable-raincoats-for-trendsetting-women/)
-- [forward layers haircut](https://hair.allwomenstalk.com/up-your-wow-factor-this-winter-with-the-seasons-sassiest-styles/)
-- [really long sleeves](https://fashion.allwomenstalk.com/photos-that-prove-extra-long-sleeves-are-now-in-style/)
 - [cozy blanket gif](https://lifestyle.allwomenstalk.com/warm-and-cozy-blankets/)
+- [really long sleeves](https://fashion.allwomenstalk.com/photos-that-prove-extra-long-sleeves-are-now-in-style/)
+- [cute color combos](https://fashion.allwomenstalk.com/the-cutest-color-combos-to-wear-in-winter/)
+- [does a trench coat keep you warm](https://fashion.allwomenstalk.com/the-hottest-coat-trends-thatll-keep-you-warm/)
+- [forward layers haircut](https://hair.allwomenstalk.com/up-your-wow-factor-this-winter-with-the-seasons-sassiest-styles/)
+- [how to wear a crop top over 50](https://fashion.allwomenstalk.com/how-to-wear-crop-tops-in-the-cold/)
+- [spring fall coats](https://fashion.allwomenstalk.com/coats-for-a-perfect-transition-from-winter-to-spring/)
+- [trendy raincoats](https://fashion.allwomenstalk.com/best-and-most-fashionable-raincoats-for-trendsetting-women/)
+- [cute beanies](https://fashion.allwomenstalk.com/cute-beanies-for-when-its-colder/)
+- [oversized sweater and tights](https://fashion.allwomenstalk.com/how-to-wear-an-oversized-sweater-during-winter/)
 - [8 Sporty Chic Workout Clothes ...](https://fashion.allwomenstalk.com/sporty-chic-workout-clothes/)
 - [Winter Clothes - 20 Coolest Picks ...](https://allwomenstalk.com/winter-clothes-20-coolest-picks/)
 

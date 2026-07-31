@@ -42,16 +42,16 @@ I hope these reasons to take a fitness class motivated you to try one. It is not
 
 ## Related Posts
 
-- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
-- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
-- [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
+- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
 - [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
-- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
-- [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
+- [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
 - [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
 - [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
+- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
 - [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
-- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
+- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
+- [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
+- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
 - [10 Benefits of a Fitness Boot Camp ...](https://fitene.com/benefits-of-a-fitness-boot-camp/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 

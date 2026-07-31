@@ -56,16 +56,16 @@ Which of these rewards are you most excited about? What other ideas can you add?
 
 ## Related Posts
 
-- [wedding body ready](https://wedding.allwomenstalk.com/the-exercises-brides-to-be-should-do-one-month-before-the-wedding/)
-- [daily workout reminder](https://fitness.allwomenstalk.com/reminders-to-rev-up-your-workouts/)
 - [shoulder exercises for girls](https://fitness.allwomenstalk.com/sensational-exercises-for-girls-who-want-chiseled-shoulders/)
-- [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
-- [can you workout 7 days a week](https://fitness.allwomenstalk.com/this-is-what-happens-when-you-work-out-days-in-a-row/)
-- [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
+- [wedding body ready](https://wedding.allwomenstalk.com/the-exercises-brides-to-be-should-do-one-month-before-the-wedding/)
 - [work out for girls](https://fitness.allwomenstalk.com/cardio-for-girls-who-work-out-at-home/)
-- [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
-- [freckled yogi](https://fitness.allwomenstalk.com/build-strong-lean-muscle-with-this-beginner-yoga-sequence/)
 - [best bottom exercises](https://fitness.allwomenstalk.com/7-of-the-best-butt-exercises-of-all-time/)
+- [freckled yogi](https://fitness.allwomenstalk.com/build-strong-lean-muscle-with-this-beginner-yoga-sequence/)
+- [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
+- [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
+- [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
+- [daily workout reminder](https://fitness.allwomenstalk.com/reminders-to-rev-up-your-workouts/)
+- [can you workout 7 days a week](https://fitness.allwomenstalk.com/this-is-what-happens-when-you-work-out-days-in-a-row/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [7 Sneaky Ways to Make Yourself Work out ...](https://weightloss.allwomenstalk.com/sneaky-ways-to-make-yourself-work-out/)
 

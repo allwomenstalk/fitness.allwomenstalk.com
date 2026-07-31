@@ -50,16 +50,16 @@ Believe it or not, the end of your workout is a great time to take a selfie. If 
 
 ## Related Posts
 
-- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
-- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
-- [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
-- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
-- [you'll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
-- [jennifer aniston fit](https://fitness.allwomenstalk.com/fitness-tips-from-jennifer-aniston/)
 - [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
 - [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
+- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
+- [jennifer aniston fit](https://fitness.allwomenstalk.com/fitness-tips-from-jennifer-aniston/)
+- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
+- [you'll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
+- [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
 - [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
 - [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
+- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 

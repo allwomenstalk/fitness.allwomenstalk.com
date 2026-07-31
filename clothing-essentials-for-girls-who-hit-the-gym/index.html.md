@@ -163,15 +163,15 @@ P.E Nation, Cuban Missile Striped Shorts ($86) available [here](http://www.anrdo
 ## Related Posts
 
 - [wardrobe must haves for every woman](https://fashion.allwomenstalk.com/wardrobe-essentials-every-woman-should-own/)
-- [fashion addicts](https://travel.allwomenstalk.com/the-coolest-cities-to-shop-in-for-fashion-addicts/)
-- [mirrored sunglasses trend](https://fashion.allwomenstalk.com/mirrored-sunglasses-your-wardrobe-is-incomplete-without/)
-- [leggings comparable to lularoe](https://fashion.allwomenstalk.com/lularoe-alternatives/)
 - [outfits con tenis balenciaga speed](https://fashion.allwomenstalk.com/items-every-girl-needs-in-her-closet/)
-- [diy skirts from old clothes](https://diy.allwomenstalk.com/savvy-clothing-secrets-for-girls-needing-to-repurpose-their-old-wardrobe-new/)
-- [clothing makeover](https://fashion.allwomenstalk.com/ways-to-re-invigorate-your-wardrobe/)
-- [who sings tight fitting jeans](https://fashion.allwomenstalk.com/the-most-inspirational-denim-looks-from-films-wed-all-love-to-achieve/)
 - [best closet organizing app](https://apps.allwomenstalk.com/totally-perfect-apps-to-maximize-your-wardrobe-without-spending-a-fortune/)
+- [mirrored sunglasses trend](https://fashion.allwomenstalk.com/mirrored-sunglasses-your-wardrobe-is-incomplete-without/)
+- [fashion addicts](https://travel.allwomenstalk.com/the-coolest-cities-to-shop-in-for-fashion-addicts/)
+- [who sings tight fitting jeans](https://fashion.allwomenstalk.com/the-most-inspirational-denim-looks-from-films-wed-all-love-to-achieve/)
 - [black friday designer deals](https://fashion.allwomenstalk.com/best-black-friday-deals-on-designer-fashion/)
+- [leggings comparable to lularoe](https://fashion.allwomenstalk.com/lularoe-alternatives/)
+- [clothing makeover](https://fashion.allwomenstalk.com/ways-to-re-invigorate-your-wardrobe/)
+- [diy skirts from old clothes](https://diy.allwomenstalk.com/savvy-clothing-secrets-for-girls-needing-to-repurpose-their-old-wardrobe-new/)
 - [25 Beach Essentials for a Fabulous Day at the Beac...](https://allwomenstalk.com/25-beach-essentials-for-a-fabulous-day-at-the-beach/)
 - [Top 10 Things for Your Gym Bag ...](https://allwomenstalk.com/top-10-things-for-your-gym-bag/)
 

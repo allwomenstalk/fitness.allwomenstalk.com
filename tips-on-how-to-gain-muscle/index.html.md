@@ -42,15 +42,15 @@ If you’re looking to gain muscle, don’t just wing it and expect results. It 
 
 ## Related Posts
 
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
 - [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
 - [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
-- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 - [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
 - [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
 - [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
 - [i'm too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
 - [Memorable Milestonesto Hit on Your Life-Changing F...](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)

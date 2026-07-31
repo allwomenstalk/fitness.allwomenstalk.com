@@ -50,16 +50,16 @@ These workouts won't get you a job walking the runway, but they certainly will b
 
 ## Related Posts
 
-- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
-- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
-- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
-- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
+- [best exercises for saddlebags](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-saddlebags/)
 - [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
 - [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
 - [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
-- [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
-- [best exercises for saddlebags](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-saddlebags/)
 - [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
+- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
+- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
+- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
+- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
+- [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
 - [7 Best Push-up Bras ...](https://allwomenstalk.com/7-best-push-up-bras/)
 - [17 Easy Exercises for Toned, Bikini-Ready Tush ...](https://fitene.com/easy-exercises-for-toned-bikini-ready-tush/)
 

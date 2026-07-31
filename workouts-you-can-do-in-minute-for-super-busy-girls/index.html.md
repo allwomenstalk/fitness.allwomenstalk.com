@@ -42,16 +42,16 @@ Do you find yourself running out of time to exercise? Which of these 1-minute wo
 
 ## Related Posts
 
-- [lazy stomach exercises](https://fitness.allwomenstalk.com/simple-yet-effective-ab-exercises-for-girls-lacking-in-effort/)
-- [exercise apps for women](https://apps.allwomenstalk.com/savvy-exercise-apps-for-girls-who-like-working-out-indoors/)
-- [best exercise for midsection](https://fitness.allwomenstalk.com/moves-to-trim-and-tone-your-midsection-for-a-rockin-bod/)
+- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
+- [cardio barre calories](https://fitness.allwomenstalk.com/fit-girls-guide-to-the-best-fat-burning-workouts/)
+- [12 minute tabata workout calories](https://weightloss.allwomenstalk.com/hardcore-tabata-workouts-for-girls-wanting-serious-results/)
 - [inshape for ladies](https://fitness.allwomenstalk.com/workouts-to-get-back-in-shape-for-girls-who-put-on-weight-during-christmas/)
 - [what are moves on a treadmill](https://fitness.allwomenstalk.com/fat-blasting-moves-for-when-youre-sick-of-the-treadmill/)
-- [cardio barre calories](https://fitness.allwomenstalk.com/fit-girls-guide-to-the-best-fat-burning-workouts/)
-- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
-- [12 minute tabata workout calories](https://weightloss.allwomenstalk.com/hardcore-tabata-workouts-for-girls-wanting-serious-results/)
 - [how much walking to burn 200 calories](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-anywhere-to-burn-200-calories-in-only-15-minutes/)
+- [best exercise for midsection](https://fitness.allwomenstalk.com/moves-to-trim-and-tone-your-midsection-for-a-rockin-bod/)
 - [gym fails videos](https://funny.allwomenstalk.com/hilarious-gym-fails-we-all-cant-help-but-laugh-at-and-maybe-relate-to/)
+- [lazy stomach exercises](https://fitness.allwomenstalk.com/simple-yet-effective-ab-exercises-for-girls-lacking-in-effort/)
+- [exercise apps for women](https://apps.allwomenstalk.com/savvy-exercise-apps-for-girls-who-like-working-out-indoors/)
 - [7 Fun Ways a Busy Mom Can Exercise ...](https://parenting.allwomenstalk.com/7-fun-ways-a-busy-mom-can-exercise/)
 - [Yoga for the Time-Challenged, Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 

@@ -28,16 +28,16 @@ Stand straight, put your feet shoulder-width apart and put your arms straight in
 
 ## Related Posts
 
-- [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
-- [babe running](https://fitness.allwomenstalk.com/ways-to-start-running/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
-- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
-- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
-- [shapefast](https://fitness.allwomenstalk.com/how-to-work-out-at-home-without-equipment/)
-- [standing rows form](https://fitness.allwomenstalk.com/exercises-for-back-fat-2/)
-- [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
 - [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
+- [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
+- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
+- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
+- [standing rows form](https://fitness.allwomenstalk.com/exercises-for-back-fat-2/)
+- [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
+- [shapefast](https://fitness.allwomenstalk.com/how-to-work-out-at-home-without-equipment/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [babe running](https://fitness.allwomenstalk.com/ways-to-start-running/)
 - [22 Best Exercises for a Perfect Butt ...](https://weightloss.allwomenstalk.com/best-exercises-for-a-perfect-butt/)
 - [17 Easy Exercises for Toned, Bikini-Ready Tush ...](https://fitene.com/easy-exercises-for-toned-bikini-ready-tush/)
 

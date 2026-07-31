@@ -42,16 +42,16 @@ Can you believe all you just did in just 7 minutes? With just 7 minutes of those
 
 ## Related Posts
 
-- [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
-- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
 - [you'll never regret a workout](https://fitness.allwomenstalk.com/workout-inspirations-to-get-you-moving/)
-- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
-- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
-- [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
 - [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
+- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
+- [loreal color le stylo infinite sky](https://fitness.allwomenstalk.com/ways-to-multitask-while-youre-doing-squats/)
+- [memorable milestones in your fitness journey](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
 - [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
+- [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
 - [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
+- [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
+- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
 - [7 Best Exercises to Tone Your Legs ...](https://allwomenstalk.com/7-best-exercises-to-tone-your-legs/)
 - [7 Effective Exercises for Thighs ...](https://health.allwomenstalk.com/effective-exercises-for-thighs/)
 

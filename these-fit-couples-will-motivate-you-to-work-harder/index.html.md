@@ -149,16 +149,16 @@ Doesn't that inspire you to work out with your bae?
 
 ## Related Posts
 
+- [can you workout 7 days a week](https://fitness.allwomenstalk.com/this-is-what-happens-when-you-work-out-days-in-a-row/)
+- [daily workout reminder](https://fitness.allwomenstalk.com/reminders-to-rev-up-your-workouts/)
 - [outdoor ab workout](https://fitness.allwomenstalk.com/minute-ab-routines-you-can-do-outside/)
+- [shoulder exercises for girls](https://fitness.allwomenstalk.com/sensational-exercises-for-girls-who-want-chiseled-shoulders/)
+- [work out for girls](https://fitness.allwomenstalk.com/cardio-for-girls-who-work-out-at-home/)
 - [beach bunnies](https://fitness.allwomenstalk.com/the-best-workouts-for-beach-bunnies/)
 - [best bottom exercises](https://fitness.allwomenstalk.com/7-of-the-best-butt-exercises-of-all-time/)
-- [shoulder exercises for girls](https://fitness.allwomenstalk.com/sensational-exercises-for-girls-who-want-chiseled-shoulders/)
-- [daily workout reminder](https://fitness.allwomenstalk.com/reminders-to-rev-up-your-workouts/)
+- [who is cotdammitelizabeth](https://funny.allwomenstalk.com/cotdammitelizabeth-videos-to-get-you-into-working-out-groove/)
 - [wedding body ready](https://wedding.allwomenstalk.com/the-exercises-brides-to-be-should-do-one-month-before-the-wedding/)
 - [non food rewards for weight loss](https://fitness.allwomenstalk.com/non-food-treats-to-reward-yourself-after-a-hard-gym-session/)
-- [can you workout 7 days a week](https://fitness.allwomenstalk.com/this-is-what-happens-when-you-work-out-days-in-a-row/)
-- [work out for girls](https://fitness.allwomenstalk.com/cardio-for-girls-who-work-out-at-home/)
-- [who is cotdammitelizabeth](https://funny.allwomenstalk.com/cotdammitelizabeth-videos-to-get-you-into-working-out-groove/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 - [All of the Fitspo You Need for 2015 ...](https://fitness.allwomenstalk.com/all-of-the-fitspo-you-need-for/)
 

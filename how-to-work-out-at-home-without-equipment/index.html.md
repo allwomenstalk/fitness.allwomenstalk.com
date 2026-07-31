@@ -60,16 +60,16 @@ So there it is, the perfect **home workout**. The only "equipment" you will need
 
 ## Related Posts
 
-- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
-- [standing rows form](https://fitness.allwomenstalk.com/exercises-for-back-fat-2/)
-- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
-- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
+- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
 - [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
+- [standing rows form](https://fitness.allwomenstalk.com/exercises-for-back-fat-2/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

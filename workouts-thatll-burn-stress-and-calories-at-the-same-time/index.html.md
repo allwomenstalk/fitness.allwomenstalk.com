@@ -74,16 +74,16 @@ So push yourself with these great workouts to shimmy away the stress, sculpt you
 
 ## Related Posts
 
-- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
-- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
-- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
-- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
-- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
-- [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
-- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
-- [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
 - [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
+- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
+- [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
+- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
+- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
+- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
+- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
+- [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
 - [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
+- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [10 Top Fat Burning Exercises ...](https://allwomenstalk.com/top-10-fat-burning-exercises/)
 

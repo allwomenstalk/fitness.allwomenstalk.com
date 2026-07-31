@@ -18,16 +18,16 @@ Can you do this move?
 
 ## Related Posts
 
+- [quickly calories](https://fitness.allwomenstalk.com/burn-calories-quickly-with-this-treadmill-interval-workout/)
+- [pilates addiction](https://fitness.allwomenstalk.com/follow-this-guide-to-become-an-exercise-addict/)
+- [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
 - [brunette gym selfie](https://fitness.allwomenstalk.com/ladies-try-these-tips-to-bump-up-the-burn/)
 - [hardcore tatoo](https://beauty.allwomenstalk.com/these-tattoos-are-meant-for-hardcore-fitness-fanatics/)
-- [does dancing burn more calories than running](https://fitness.allwomenstalk.com/exercises-thatll-burn-more-fat-than-running-would/)
-- [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
-- [does rocking back and forth burn calories](https://fitness.allwomenstalk.com/these-exercises-will-burn-more-calories-than-you-can-believe/)
-- [clockwork lunges](https://fitness.allwomenstalk.com/workout-moves-that-are-a-waste-of-time/)
-- [pilates addiction](https://fitness.allwomenstalk.com/follow-this-guide-to-become-an-exercise-addict/)
 - [popsugar 20 minute workout](https://fitness.allwomenstalk.com/the-20-minute-calorie-scorcher-for-beginners/)
+- [does dancing burn more calories than running](https://fitness.allwomenstalk.com/exercises-thatll-burn-more-fat-than-running-would/)
 - [home yoga essentials](https://fitness.allwomenstalk.com/these-yoga-essentials-will-get-you-started-in-the-studio/)
-- [quickly calories](https://fitness.allwomenstalk.com/burn-calories-quickly-with-this-treadmill-interval-workout/)
+- [clockwork lunges](https://fitness.allwomenstalk.com/workout-moves-that-are-a-waste-of-time/)
+- [does rocking back and forth burn calories](https://fitness.allwomenstalk.com/these-exercises-will-burn-more-calories-than-you-can-believe/)
 - [7 Core Strengthening Exercises ...](https://health.allwomenstalk.com/core-strengthening-exercises/)
 - [7 Easy Moves to Tone and Tighten Your Bum ...](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
 

@@ -42,16 +42,16 @@ So with all these super total body travel workouts, which one will you start wit
 
 ## Related Posts
 
-- [best workouts for stress relief](https://fitness.allwomenstalk.com/workouts-thatll-relax-your-mind-and-body/)
-- [belly blast exercises](https://fitness.allwomenstalk.com/combat-belly-fat-with-these-exercises/)
-- [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
-- [activities that burn 100 calories](https://fitness.allwomenstalk.com/ways-to-burn-100-calories/)
-- [gym motivation video](https://fitness.allwomenstalk.com/fitness-videos-to-inspire-you-and-pump-you-up/)
 - [websites for exercise](https://fitness.allwomenstalk.com/websites-thatll-make-you-want-to-go-to-the-gym-asap/)
-- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
 - [fast results workout](https://fitness.allwomenstalk.com/the-ultimate-dos-and-donts-of-your-work-out/)
-- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
+- [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
+- [belly blast exercises](https://fitness.allwomenstalk.com/combat-belly-fat-with-these-exercises/)
+- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
+- [gym motivation video](https://fitness.allwomenstalk.com/fitness-videos-to-inspire-you-and-pump-you-up/)
+- [activities that burn 100 calories](https://fitness.allwomenstalk.com/ways-to-burn-100-calories/)
 - [flat tummy walk treadmill](https://fitness.allwomenstalk.com/i-wanna-walk-and-these-walking-workouts-will-make-you-wanna-walk-too/)
+- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
+- [best workouts for stress relief](https://fitness.allwomenstalk.com/workouts-thatll-relax-your-mind-and-body/)
 - [7 Ways to Work out While Traveling ...](https://allwomenstalk.com/7-ways-to-work-out-while-traveling/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

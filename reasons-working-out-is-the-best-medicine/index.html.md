@@ -42,16 +42,16 @@ Now that you understand all the reasons exercise is the best medicine, are you r
 
 ## Related Posts
 
-- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
-- [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
-- [just class fitness](https://fitness.allwomenstalk.com/reasons-to-take-a-fitness-class-rather-than-simply-going-to-the-gym/)
-- [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
 - [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
-- [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
-- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
+- [just class fitness](https://fitness.allwomenstalk.com/reasons-to-take-a-fitness-class-rather-than-simply-going-to-the-gym/)
+- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
+- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
 - [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
 - [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
-- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
+- [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
+- [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
+- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
+- [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
 - [8 Reasons to Start Working out ...](https://allwomenstalk.com/8-reasons-to-start-working-out/)
 - [7 Good Reasons to Join a Gym ...](https://health.allwomenstalk.com/good-reasons-to-join-a-gym/)
 

@@ -26,16 +26,16 @@ With these awesome dance workout YouTube videos you can get fit and toned at hom
 
 ## Related Posts
 
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
 - [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
 - [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
 - [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
 - [8 Tips for Working out at Home ...](https://health.allwomenstalk.com/tips-for-working-out-at-home/)
 - [7 Top Exercises That You Can do around the House ....](https://allwomenstalk.com/top-7-exercises-you-can-do-around-the-house/)
 

@@ -120,16 +120,16 @@ Turn off the phone, get into a warm bath, maybe get a massage, and just chill ou
 
 ## Related Posts
 
-- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
-- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
-- [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
-- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
-- [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
 - [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
+- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
 - [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
+- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
+- [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
+- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 

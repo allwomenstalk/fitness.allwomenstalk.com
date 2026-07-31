@@ -56,16 +56,16 @@ So ask yourself these questions before you bail and just try to push through you
 
 ## Related Posts
 
-- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
-- [cardio barre calories](https://fitness.allwomenstalk.com/fit-girls-guide-to-the-best-fat-burning-workouts/)
 - [inshape for ladies](https://fitness.allwomenstalk.com/workouts-to-get-back-in-shape-for-girls-who-put-on-weight-during-christmas/)
+- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
 - [how much walking to burn 200 calories](https://fitness.allwomenstalk.com/easy-exercises-you-can-do-anywhere-to-burn-200-calories-in-only-15-minutes/)
 - [lazy stomach exercises](https://fitness.allwomenstalk.com/simple-yet-effective-ab-exercises-for-girls-lacking-in-effort/)
-- [gym fails videos](https://funny.allwomenstalk.com/hilarious-gym-fails-we-all-cant-help-but-laugh-at-and-maybe-relate-to/)
-- [12 minute tabata workout calories](https://weightloss.allwomenstalk.com/hardcore-tabata-workouts-for-girls-wanting-serious-results/)
 - [what are moves on a treadmill](https://fitness.allwomenstalk.com/fat-blasting-moves-for-when-youre-sick-of-the-treadmill/)
-- [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
+- [cardio barre calories](https://fitness.allwomenstalk.com/fit-girls-guide-to-the-best-fat-burning-workouts/)
 - [busy girl workouts](https://fitness.allwomenstalk.com/workouts-you-can-do-in-minute-for-super-busy-girls/)
+- [gym fails videos](https://funny.allwomenstalk.com/hilarious-gym-fails-we-all-cant-help-but-laugh-at-and-maybe-relate-to/)
+- [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
+- [12 minute tabata workout calories](https://weightloss.allwomenstalk.com/hardcore-tabata-workouts-for-girls-wanting-serious-results/)
 - [7 Reasons to Skip a Work-out ...](https://allwomenstalk.com/7-reasons-to-skip-a-work-out/)
 - [7 Reasons to Update Your Work-out ...](https://allwomenstalk.com/7-reasons-to-update-your-work-out/)
 

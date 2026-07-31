@@ -44,14 +44,14 @@ Hope you have enjoying my walking workouts that will help you get in better shap
 
 - [yoga open hips](https://fitness.allwomenstalk.com/yoga-poses-to-open-up-your-hips-and-make-you-more-supple/)
 - [healthy activities for teens](https://teen.allwomenstalk.com/healthy-activities-for-teens-trying-to-stay-in-shape/)
-- [fitness experts](https://fitness.allwomenstalk.com/of-the-best-fitness-expert-tips/)
-- [what do i need for a home gym](https://fitness.allwomenstalk.com/things-you-need-for-your-home-gym/)
-- [how to make time fly](https://health.allwomenstalk.com/ways-to-make-time-fly-while-exercising/)
+- [quickest way to abs](https://fitness.allwomenstalk.com/quick-ways-to-get-awesome-abs-for-a-vacation/)
 - [unfit to fit in 6 weeks](https://fitness.allwomenstalk.com/weeks-to-being-super-fit/)
 - [what i know about fitness](https://fitness.allwomenstalk.com/things-you-need-to-know-about-fitness/)
 - [exercise machines](https://fitness.allwomenstalk.com/of-the-wackiest-exercise-machines-on-the-market/)
+- [fitness experts](https://fitness.allwomenstalk.com/of-the-best-fitness-expert-tips/)
+- [what do i need for a home gym](https://fitness.allwomenstalk.com/things-you-need-for-your-home-gym/)
+- [how to make time fly](https://health.allwomenstalk.com/ways-to-make-time-fly-while-exercising/)
 - [kayaking calorie burn](https://fitness.allwomenstalk.com/water-sports-that-will-blast-mega-calories/)
-- [quickest way to abs](https://fitness.allwomenstalk.com/quick-ways-to-get-awesome-abs-for-a-vacation/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Ways to Sneak in Exercise ...](https://allwomenstalk.com/7-ways-to-sneak-in-exercise/)
 

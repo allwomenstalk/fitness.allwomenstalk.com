@@ -42,16 +42,16 @@ I hope you have enjoyed these kettlebell exercises and the videos to help guide 
 
 ## Related Posts
 
-- [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
-- [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
-- [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
-- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
-- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
 - [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
-- [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
-- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
-- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
+- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
 - [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
+- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
+- [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
+- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
+- [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
+- [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
+- [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
+- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [Try These Ideas the Next Time You Hit the Gym ...](https://fitness.allwomenstalk.com/things-women-should-do-in-a-gym-at-least-once/)
 - [Grab a Medicine Ball for These Fun Exercises ...](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
 

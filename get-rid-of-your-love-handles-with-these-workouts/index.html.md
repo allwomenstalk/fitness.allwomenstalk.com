@@ -22,16 +22,16 @@ Now that's what I call a workout! What other exercises do you do to make your lo
 
 ## Related Posts
 
-- [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
-- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
-- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
-- [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
 - [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
+- [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
+- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
+- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
+- [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
+- [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
 - [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
 - [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
-- [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
-- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
-- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
 - [7 Fat Burning Exercises to Blast Those Bulges into...](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
 - [Banish Those Love Handles with These Foolproof Exe...](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
 

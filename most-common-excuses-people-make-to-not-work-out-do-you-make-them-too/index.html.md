@@ -210,16 +210,16 @@ Even if my workoput clothes were clean, I couldn't go to the gym anyway, 'cos I'
 
 ## Related Posts
 
-- [workout for long legs](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-tall-girls/)
-- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
 - [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
-- [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
-- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
-- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
-- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
 - [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
+- [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
+- [workout for long legs](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-tall-girls/)
+- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
+- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
 - [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
+- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
 - [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
+- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
 - [Workout Tips: 7 Incredibly Bad and Feeble Excuses ...](https://health.allwomenstalk.com/workout-tips-incredibly-bad-and-feeble-excuses-to-skip-exercise/)
 - [7 Dumb Excuses to Avoid Exercise ...](https://health.allwomenstalk.com/dumb-excuses-to-avoid-exercise/)
 

@@ -42,16 +42,16 @@ The most important thing to remember when you first write out your exercise prog
 
 ## Related Posts
 
-- [30 Inspiring Ways to Move More and Burn More Calor...](https://fitness.allwomenstalk.com/inspiring-ways-to-move-more-and-burn-more-calories-every-day/)
-- [befit gym](https://fitness.allwomenstalk.com/the-gym-commandments-to-stick-to-if-you-want-to-be-fit/)
-- [5 Exercises for Your Eyes ...](https://health.allwomenstalk.com/exercises-for-your-eyes/)
-- [How 🤔 Can a Rower Help Your Exercise Routine?](https://fitness.allwomenstalk.com/how-can-a-rower-help-your-exercise-routine/)
-- [5 Ways to Gauge How Fit You Are ...](https://fitness.allwomenstalk.com/ways-to-gauge-how-fit-you-are/)
-- [HIIT for Beginners Who Want to Burn Calories Fast ...](https://fitness.allwomenstalk.com/hiit-for-beginners-who-want-to-burn-calories-fast/)
-- [what increase stamina](https://fitness.allwomenstalk.com/awesome-ways-to-increase-your-stamina/)
 - [26 Fun 🤗 Ways to Exercise when You Hate Working o...](https://fitness.allwomenstalk.com/fun-ways-to-exercise-when-you-hate-working-out/)
-- [How to Make a Home Gym with Items You Already Own ...](https://fitness.allwomenstalk.com/how-to-make-a-home-gym-with-items-you-already-own/)
+- [5 Exercises for Your Eyes ...](https://health.allwomenstalk.com/exercises-for-your-eyes/)
+- [HIIT for Beginners Who Want to Burn Calories Fast ...](https://fitness.allwomenstalk.com/hiit-for-beginners-who-want-to-burn-calories-fast/)
+- [30 Inspiring Ways to Move More and Burn More Calor...](https://fitness.allwomenstalk.com/inspiring-ways-to-move-more-and-burn-more-calories-every-day/)
 - [turning your love of fitness into a business](https://fitness.allwomenstalk.com/how-to-turn-your-love-for-fitness-into-a-career/)
+- [5 Ways to Gauge How Fit You Are ...](https://fitness.allwomenstalk.com/ways-to-gauge-how-fit-you-are/)
+- [How to Make a Home Gym with Items You Already Own ...](https://fitness.allwomenstalk.com/how-to-make-a-home-gym-with-items-you-already-own/)
+- [befit gym](https://fitness.allwomenstalk.com/the-gym-commandments-to-stick-to-if-you-want-to-be-fit/)
+- [How 🤔 Can a Rower Help Your Exercise Routine?](https://fitness.allwomenstalk.com/how-can-a-rower-help-your-exercise-routine/)
+- [what increase stamina](https://fitness.allwomenstalk.com/awesome-ways-to-increase-your-stamina/)
 - [10 Steps to Create a Perfect Fitness Routine ...](https://health.allwomenstalk.com/steps-to-create-a-perfect-fitness-routine/)
 - [18 Tips to Help You Stick to Your Workout ...](https://fitene.com/tips-to-help-you-stick-to-your-workout/)
 

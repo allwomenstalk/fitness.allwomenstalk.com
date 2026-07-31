@@ -36,16 +36,16 @@ PS: For any questions, ladies, do not hesitate to email me directly at olga@allw
 
 ## Related Posts
 
-- [couch crunches](https://weightloss.allwomenstalk.com/how-to-lose-weight-without-leaving-the-couch/)
 - [tropical fruit diet](https://weightloss.allwomenstalk.com/tropical-fruits-to-perfect-your-weight-loss-plan/)
-- [how to avoid gaining weight on vacation](https://weightloss.allwomenstalk.com/foolproof-ways-to-maintain-your-weight-on-vacation/)
-- [rewards for weight loss](https://weightloss.allwomenstalk.com/youve-done-it-now-check-out-these-non-food-rewards-to-celebrate-weight-loss-milestones/)
-- [loose weight book](https://books.allwomenstalk.com/inspiring-weight-loss-books-to-get-you-well-inspired/)
-- [fab 50 workouts](https://weightloss.allwomenstalk.com/everyday-activities-that-can-aid-in-your-weightloss-by-50/)
 - [weightloss quotes](https://weightloss.allwomenstalk.com/these-quotes-about-weight-loss-are-hilarious-and-motivating/)
-- [dragon fruit to lose weight](https://weightloss.allwomenstalk.com/fruits-you-should-be-eating-that-aid-in-weight-loss/)
-- [belly bust up](https://fitness.allwomenstalk.com/how-to-bust-that-gut-to-gain-confidence-back/)
+- [couch crunches](https://weightloss.allwomenstalk.com/how-to-lose-weight-without-leaving-the-couch/)
+- [how to avoid gaining weight on vacation](https://weightloss.allwomenstalk.com/foolproof-ways-to-maintain-your-weight-on-vacation/)
+- [loose weight book](https://books.allwomenstalk.com/inspiring-weight-loss-books-to-get-you-well-inspired/)
 - [does walking with weights burn more calories](https://weightloss.allwomenstalk.com/how-to-burn-more-calories-on-your-walks/)
+- [fab 50 workouts](https://weightloss.allwomenstalk.com/everyday-activities-that-can-aid-in-your-weightloss-by-50/)
+- [belly bust up](https://fitness.allwomenstalk.com/how-to-bust-that-gut-to-gain-confidence-back/)
+- [rewards for weight loss](https://weightloss.allwomenstalk.com/youve-done-it-now-check-out-these-non-food-rewards-to-celebrate-weight-loss-milestones/)
+- [dragon fruit to lose weight](https://weightloss.allwomenstalk.com/fruits-you-should-be-eating-that-aid-in-weight-loss/)
 - [20 Tips for Losing Weight ...](https://weightloss.allwomenstalk.com/tips-for-losing-weight-3/)
 - [10 Tips on How to Lose 10 Pounds ...](https://weightloss.allwomenstalk.com/surprisingly-simple-but-highly-effective-tips-on-how-to-lose-10-pounds/)
 

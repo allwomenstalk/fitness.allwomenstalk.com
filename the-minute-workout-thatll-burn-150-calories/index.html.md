@@ -19,15 +19,15 @@ Are you going to challenge yourself to complete this workout today? You should, 
 ## Related Posts
 
 - [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
-- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
-- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
 - [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
-- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
 - [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
 - [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
+- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
+- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
 - [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
-- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
+- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
 - [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
+- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
 - [13 of the Absolute Essential Exercises You Need to...](https://weightloss.allwomenstalk.com/exercises-that-burn-the-most-calories/)
 - [30 More Ways to Burn 100 Calories Easily ...](https://diet.allwomenstalk.com/more-ways-to-burn-100-calories-easily/)
 

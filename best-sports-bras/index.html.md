@@ -116,16 +116,16 @@ There are so many great sports bras out there that it would be a shame to be stu
 
 ## Related Posts
 
-- [wrong bra size signs](https://fashion.allwomenstalk.com/signs-youre-wearing-the-wrong-bra-size/)
-- [lingerie first night](https://wedding.allwomenstalk.com/bridal-lingerie-pieces-to-impress-your-man/)
-- [kelly brook lingere](https://fashion.allwomenstalk.com/reasons-were-loving-kelly-brooks-lingerie-range/)
 - [kylie victoria secret](https://fashion.allwomenstalk.com/startling-things-you-never-knew-about-victorias-secret-supermodels/)
-- [pretty secrets ella bra](https://fashion.allwomenstalk.com/of-this-seasons-cutest-lingerie-sets-for-everyday/)
-- [bra rules](https://fashion.allwomenstalk.com/rules-of-bra-care-you-should-be-following/)
+- [lingerie first night](https://wedding.allwomenstalk.com/bridal-lingerie-pieces-to-impress-your-man/)
 - [hottest one piece swimsuits](https://swimwear.allwomenstalk.com/one-piece-swimsuits-that-will-make-you-feel-fabulous-and-sexy/)
-- [lingerie perhaps for parts of chest](https://fashion.allwomenstalk.com/undergarments-you-need-in-your-lingerie-chest/)
-- [bikini magic trick](https://fashion.allwomenstalk.com/ways-to-address-common-body-issues-when-wearing-a-bikini/)
+- [pretty secrets ella bra](https://fashion.allwomenstalk.com/of-this-seasons-cutest-lingerie-sets-for-everyday/)
 - [bra slides down in front](https://funny.allwomenstalk.com/bra-issues-every-woman-has-to-deal-with/)
+- [bikini magic trick](https://fashion.allwomenstalk.com/ways-to-address-common-body-issues-when-wearing-a-bikini/)
+- [bra rules](https://fashion.allwomenstalk.com/rules-of-bra-care-you-should-be-following/)
+- [lingerie perhaps for parts of chest](https://fashion.allwomenstalk.com/undergarments-you-need-in-your-lingerie-chest/)
+- [kelly brook lingere](https://fashion.allwomenstalk.com/reasons-were-loving-kelly-brooks-lingerie-range/)
+- [wrong bra size signs](https://fashion.allwomenstalk.com/signs-youre-wearing-the-wrong-bra-size/)
 - [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
 - [Shopping for Sports Bras?](https://allwomenstalk.com/shopping-for-sports-bra/)
 

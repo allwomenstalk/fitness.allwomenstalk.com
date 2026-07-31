@@ -56,16 +56,16 @@ So ladies do not be afraid to lift. It can give you the killer body, help you fe
 
 ## Related Posts
 
-- [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
-- [is roller derby a women's sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
-- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
-- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
 - [millennial mother](https://parenting.allwomenstalk.com/reasons-why-being-a-millennial-mom-totally-rocks/)
+- [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
 - [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
 - [all women's talk](https://apps.allwomenstalk.com/reasons-to-join-allwomenstalks-write-and-earn-program/)
-- [why regifting is good](https://lifestyle.allwomenstalk.com/benefits-of-regifting/)
-- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
 - [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
+- [why regifting is good](https://lifestyle.allwomenstalk.com/benefits-of-regifting/)
+- [is roller derby a women's sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
+- [cooking vacation in italy](https://travel.allwomenstalk.com/reasons-to-take-a-culinary-holiday-to-italy/)
+- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
+- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
 - [10 Reasons to Exercise with a Personal Trainer ...](https://health.allwomenstalk.com/reasons-to-exercise-with-a-personal-trainer/)
 - [7 Reasons to Update Your Work-out ...](https://allwomenstalk.com/7-reasons-to-update-your-work-out/)
 

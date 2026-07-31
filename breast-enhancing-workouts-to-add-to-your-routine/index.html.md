@@ -55,15 +55,15 @@ If you do these workouts often enough, you should see a huge change in the way t
 ## Related Posts
 
 - [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
+- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
+- [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
+- [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
+- [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
+- [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
+- [burn 150 calories](https://fitness.allwomenstalk.com/the-minute-workout-thatll-burn-150-calories/)
 - [exercise for bra bulge](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-bra-bulge/)
 - [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
-- [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
-- [burn 150 calories](https://fitness.allwomenstalk.com/the-minute-workout-thatll-burn-150-calories/)
-- [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
-- [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
-- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
 - [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
-- [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [10 Best Cardio Exercises ...](https://allwomenstalk.com/10-best-cardio-exercises/)
 

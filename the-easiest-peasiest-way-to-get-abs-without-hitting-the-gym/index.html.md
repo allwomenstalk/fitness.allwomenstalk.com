@@ -18,15 +18,15 @@ You can do this anywhere, any time and there’s no need to even get a whiff of 
 
 ## Related Posts
 
-- [cute workout brands](https://fitness.allwomenstalk.com/fitness-brands-with-the-cutest-workout-gear/)
 - [perfect abs girl](https://fitness.allwomenstalk.com/the-most-effective-workouts-for-perfect-abs/)
+- [at home walking workout](https://fitness.allwomenstalk.com/mile-in-home-walking-workout-video/)
+- [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
+- [cute workout brands](https://fitness.allwomenstalk.com/fitness-brands-with-the-cutest-workout-gear/)
+- [best workouts for losing body fat](https://weightloss.allwomenstalk.com/easy-workouts-to-lose-body-fat/)
+- [dumbbell excercises](https://fitness.allwomenstalk.com/awesome-excercises-to-get-sleek-and-sexy-arms/)
+- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
 - [couch gym](https://fitness.allwomenstalk.com/how-to-go-from-being-a-couch-potato-to-a-gym-bunny/)
 - [exercise burn most calories](https://fitness.allwomenstalk.com/exercises-that-burn-the-most-calories-2/)
-- [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
-- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
-- [best workouts for losing body fat](https://weightloss.allwomenstalk.com/easy-workouts-to-lose-body-fat/)
-- [at home walking workout](https://fitness.allwomenstalk.com/mile-in-home-walking-workout-video/)
-- [dumbbell excercises](https://fitness.allwomenstalk.com/awesome-excercises-to-get-sleek-and-sexy-arms/)
 - [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
 - [7 Tips to Tone up Your Arms without Going to the G...](https://weightloss.allwomenstalk.com/7-tips-to-tone-up-your-arms-without-going-to-the-gym/)
 - [Top 7 Ways to Tone Your Abs at Home ...](https://allwomenstalk.com/top-7-ways-to-tone-your-abs-at-home/)

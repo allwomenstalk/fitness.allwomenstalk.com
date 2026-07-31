@@ -16,15 +16,15 @@ It doesn't matter how tired or busy you are, because this workout will only take
 
 ## Related Posts
 
-- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
 - [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
-- [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
-- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
 - [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
 - [7' female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
 - [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
 - [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
 - [YouTube Videos for Your Best and Quickest Workout ...](https://fitness.allwomenstalk.com/youtube-videos-for-your-best-and-quickest-workout-ever/)
 - [Flabby to Fit in 5, with These Magical 5-minute Wo...](https://fitness.allwomenstalk.com/flabby-to-fit-in-5-with-these-magical-5-minute-workouts/)

@@ -50,16 +50,16 @@ Exercise is hard work, so why not reward yourself for it? I stay on track myself
 
 ## Related Posts
 
-- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
-- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
-- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
-- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
-- [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
-- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
-- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
-- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
-- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [20 lb kettlebell workout](https://fitness.allwomenstalk.com/the-best-exercises-using-kettle-bells/)
+- [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
+- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
+- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
+- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
+- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
+- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
+- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
+- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
+- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
 - [9 Techniques to Make Yourself Exercise ...](https://weightloss.allwomenstalk.com/9-techniques-to-make-yourself-exercise/)
 - [10 Ways to Make Exercise Fun ...](https://weightloss.allwomenstalk.com/10-ways-to-make-exercise-fun/)
 

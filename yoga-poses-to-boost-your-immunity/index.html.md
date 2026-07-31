@@ -42,16 +42,16 @@ Hope you have enjoyed all these great yoga poses and you have stretched your way
 
 ## Related Posts
 
-- [november plank challenge](https://fitness.allwomenstalk.com/all-of-the-fitspo-you-need-for/)
+- [pool exercises for abs](https://fitness.allwomenstalk.com/exercises-to-do-in-water/)
+- [yoga for strength and toning](https://fitness.allwomenstalk.com/yoga-poses-for-muscle-toning/)
 - [perfect skin and body therapy flat tummy](https://fitness.allwomenstalk.com/want-to-have-perfect-abs-flat-stomach-infographics-that-will-change-your-life/)
+- [are beachbody workouts effective](https://fitness.allwomenstalk.com/beach-body-workouts-to-transformyou/)
 - [breast lifting workouts](https://fitness.allwomenstalk.com/exercises-to-lift-and-firm-breasts/)
 - [gorgeous teen body](https://fitness.allwomenstalk.com/olympic-level-workouts-to-put-your-body-to-the-test/)
 - [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
-- [yoga for strength and toning](https://fitness.allwomenstalk.com/yoga-poses-for-muscle-toning/)
-- [pool exercises for abs](https://fitness.allwomenstalk.com/exercises-to-do-in-water/)
 - [partner pushups](https://fitness.allwomenstalk.com/strength-training-exercises-to-do-with-your-man/)
-- [are beachbody workouts effective](https://fitness.allwomenstalk.com/beach-body-workouts-to-transformyou/)
 - [should i workout before a date](https://fitness.allwomenstalk.com/workouts-to-get-you-ready-for-your-next-date/)
+- [november plank challenge](https://fitness.allwomenstalk.com/all-of-the-fitspo-you-need-for/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [7 Yoga Poses to Help You Sleep ...](https://allwomenstalk.com/7-yoga-poses-to-help-you-sleep/)
 

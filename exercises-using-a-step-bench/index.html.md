@@ -44,16 +44,16 @@ Now that you have a few new exercises you can try on the step bench, are you rea
 
 ## Related Posts
 
-- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
-- [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
-- [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
-- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
-- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
-- [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
 - [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
+- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
+- [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
+- [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
+- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
 - [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [7 Ways to Lose Weight with Step Aerobics ...](https://weightloss.allwomenstalk.com/ways-to-lose-weight-with-step-aerobics/)
 

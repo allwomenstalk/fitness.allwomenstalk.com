@@ -28,16 +28,16 @@ What are you waiting for? Get up and start moving that booty! What other exercis
 
 ## Related Posts
 
-- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
-- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
+- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
+- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
+- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
 - [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
 - [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
+- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
 - [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
-- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
-- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
 - [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
-- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
-- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
 - [7 Best Workouts for Your Sex Life ...](https://health.allwomenstalk.com/7-best-workouts-for-your-sex-life/)
 - [7 Secrets of Naturally Slim Women ...](https://allwomenstalk.com/7-secrets-of-naturally-slim-women/)
 

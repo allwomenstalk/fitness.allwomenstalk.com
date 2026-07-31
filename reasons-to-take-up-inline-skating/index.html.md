@@ -55,16 +55,16 @@ If you’re already into inline skating, I applaud you. If not, I warmly recomme
 
 ## Related Posts
 
-- [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
-- [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
-- [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
 - [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
-- [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
+- [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
 - [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
+- [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
+- [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
 - [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
 - [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
-- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
+- [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
 - [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
+- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
 - [7 Inspiring Reasons You Should do a Skipping Worko...](https://fitness.allwomenstalk.com/inspiring-reasons-you-should-do-a-skipping-workout-today/)
 - [7 Reasons to Try Skiing This Year ...](https://fitness.allwomenstalk.com/reasons-to-try-skiing-this-year/)
 

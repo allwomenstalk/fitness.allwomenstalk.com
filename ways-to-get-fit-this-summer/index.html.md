@@ -74,16 +74,16 @@ Summer is a great time to get outside and get moving! Save your indoor workouts 
 
 ## Related Posts
 
-- [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
+- [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
+- [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
+- [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
+- [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
+- [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
+- [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
 - [affordable summer camps](https://parenting.allwomenstalk.com/cheap-alternatives-to-summer-camp/)
 - [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
-- [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
-- [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
-- [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
-- [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
+- [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
 - [summer camp for single adults](https://travel.allwomenstalk.com/super-summer-camps-for-adults-for-a-vacation-with-a-difference/)
-- [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
-- [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
 - [9 Easy Ways to Lose Weight in Summer ...](https://weightloss.allwomenstalk.com/easy-ways-to-lose-weight-in-summer/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 

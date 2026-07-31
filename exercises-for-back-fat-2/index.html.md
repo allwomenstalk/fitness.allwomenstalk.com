@@ -42,16 +42,16 @@ Ready for the best looking body you've ever had? What other moves would you add 
 
 ## Related Posts
 
-- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
-- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
-- [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
-- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
-- [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
 - [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
+- [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
+- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
+- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
 - [13 Effective Exercises for Back Fat ...](https://weightloss.allwomenstalk.com/effective-exercises-for-back-fat/)
 - [7 Best Exercise for Curvy Girls ...](https://health.allwomenstalk.com/best-exercise-for-curvy-girls/)
 

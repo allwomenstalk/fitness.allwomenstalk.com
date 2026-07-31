@@ -68,14 +68,14 @@ Chime in, my fellow fit girls! How else do you keep motivated and stay addicted?
 
 ## Related Posts
 
-- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
-- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
-- [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
-- [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
+- [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
 - [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
 - [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
+- [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
+- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
+- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
 - [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
-- [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
+- [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
 - [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
 - [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
 - [Pro-Ahtlete Rituals to Follow for Girls Who Want t...](https://fitness.allwomenstalk.com/strange-pro-athlete-tips-that-work/)

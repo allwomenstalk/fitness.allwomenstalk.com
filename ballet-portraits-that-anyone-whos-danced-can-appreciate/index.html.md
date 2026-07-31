@@ -98,15 +98,15 @@ She's just my hero.
 
 ## Related Posts
 
-- [why are athletes more attractive](https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/)
-- [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
-- [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
-- [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
-- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
 - [fomo ice tea](https://lifestyle.allwomenstalk.com/these-types-of-instagram-posts-always-give-us-fomo/)
-- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
 - [cheesy romantic things to say](https://love.allwomenstalk.com/cheesy-relationship-moments-that-are-always-on-instagram/)
 - [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
+- [why are athletes more attractive](https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/)
+- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
+- [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
+- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
+- [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
+- [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
 - [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
 - [7 Ballet-Inspired Pieces ...](https://fashion.allwomenstalk.com/7-ballet-inspired-pieces/)
 - [5 Great Fashion Photography ...](https://allwomenstalk.com/5-great-fashion-photography/)

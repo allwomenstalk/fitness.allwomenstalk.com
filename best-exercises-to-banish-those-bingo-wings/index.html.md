@@ -44,16 +44,16 @@ These are just a few exercises I love to do to tone up my arms. What are your fa
 
 ## Related Posts
 
-- [exercises that burn most calories](https://fitness.allwomenstalk.com/fun-workouts-that-burn-the-most-calories/)
-- [how to push yourself to workout](https://fitness.allwomenstalk.com/reasons-to-push-yourself-in-your-workout/)
-- [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
-- [when you don't feel like working out](https://fitness.allwomenstalk.com/reasons-to-work-out-even-when-you-dont-feel-like-it/)
-- [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
-- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
 - [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
-- [what to workout on saturday](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
-- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
+- [how to push yourself to workout](https://fitness.allwomenstalk.com/reasons-to-push-yourself-in-your-workout/)
 - [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
+- [what to workout on saturday](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
+- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
+- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
+- [exercises that burn most calories](https://fitness.allwomenstalk.com/fun-workouts-that-burn-the-most-calories/)
+- [when you don't feel like working out](https://fitness.allwomenstalk.com/reasons-to-work-out-even-when-you-dont-feel-like-it/)
+- [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
+- [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [7 Top Most Effective Exercises ...](https://allwomenstalk.com/top-7-most-effective-exercises/)
 

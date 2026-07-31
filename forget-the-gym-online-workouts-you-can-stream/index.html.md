@@ -42,16 +42,16 @@ If you don't have the time to drive to the gym or the confidence to workout arou
 
 ## Related Posts
 
-- [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
-- [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
-- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
-- [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
-- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
-- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
-- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
 - [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
-- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
+- [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
+- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
+- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
 - [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
+- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
+- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
+- [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 - [7 Ways to Work out While Traveling ...](https://allwomenstalk.com/7-ways-to-work-out-while-traveling/)
 

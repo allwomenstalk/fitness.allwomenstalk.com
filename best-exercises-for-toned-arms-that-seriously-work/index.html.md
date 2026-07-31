@@ -56,16 +56,16 @@ These exercises for toned arms have helped me in tremendous ways during my worko
 
 ## Related Posts
 
-- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
-- [fun workout programs](https://fitness.allwomenstalk.com/fun-workout-programs-that-dont-feel-like-a-workout/)
-- [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
-- [working out tips](https://fitness.allwomenstalk.com/tips-for-working-out-at-home-successfully/)
-- [does yoga boost metabolism](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
-- [desert down dog yoga](https://fitness.allwomenstalk.com/easy-yoga-poses-to-get-you-started/)
-- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
-- [6 major muscle groups](https://fitness.allwomenstalk.com/major-muscle-groups-to-work-out-without-fail/)
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
+- [6 major muscle groups](https://fitness.allwomenstalk.com/major-muscle-groups-to-work-out-without-fail/)
+- [desert down dog yoga](https://fitness.allwomenstalk.com/easy-yoga-poses-to-get-you-started/)
+- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
+- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
+- [does yoga boost metabolism](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
+- [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
+- [fun workout programs](https://fitness.allwomenstalk.com/fun-workout-programs-that-dont-feel-like-a-workout/)
+- [working out tips](https://fitness.allwomenstalk.com/tips-for-working-out-at-home-successfully/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [7 Tips to Tone up Your Arms without Going to the G...](https://weightloss.allwomenstalk.com/7-tips-to-tone-up-your-arms-without-going-to-the-gym/)
 - [11 Effective Exercises to Slim Your Arms 🤳 into P...](https://weightloss.allwomenstalk.com/exercises-for-slimming-your-arms/)
 

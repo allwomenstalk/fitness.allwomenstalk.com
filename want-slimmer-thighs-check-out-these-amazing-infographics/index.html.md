@@ -142,16 +142,16 @@ Source: [Pear Shaped Body Endomorph Workout](https://www.fitwirr.com/health/diff
 
 ## Related Posts
 
-- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
-- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
-- [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
-- [desk bound job](https://fitness.allwomenstalk.com/ways-to-exercise-when-you-have-a-desk-bound-job/)
-- [jaw contouring makeup](https://beauty.allwomenstalk.com/exercises-and-contouring-tips-to-make-your-jawline-defined/)
-- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
-- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
-- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
-- [simple trampoline](https://fitness.allwomenstalk.com/simple-safe-trampoline-workouts-that-anyone-do/)
 - [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
+- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
+- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
+- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
+- [simple trampoline](https://fitness.allwomenstalk.com/simple-safe-trampoline-workouts-that-anyone-do/)
+- [jaw contouring makeup](https://beauty.allwomenstalk.com/exercises-and-contouring-tips-to-make-your-jawline-defined/)
+- [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
+- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [desk bound job](https://fitness.allwomenstalk.com/ways-to-exercise-when-you-have-a-desk-bound-job/)
+- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [7 Exercises to Tone Your Legs This Summer ...](https://allwomenstalk.com/7-exercises-to-tone-your-legs-this-summer/)
 - [17 Easy Exercises for Toned, Bikini-Ready Tush ...](https://fitene.com/easy-exercises-for-toned-bikini-ready-tush/)
 

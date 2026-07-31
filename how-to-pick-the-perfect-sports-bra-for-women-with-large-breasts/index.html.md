@@ -42,16 +42,16 @@ Are you ready to find the perfect sports bra? What kind of exercise will you wea
 
 ## Related Posts
 
-- [crop tops and bralettes](https://fashion.allwomenstalk.com/move-over-crop-tops-bralettes-are-here/)
-- [braless outfit](https://fashion.allwomenstalk.com/this-is-how-to-go-bra-free-this-summer/)
+- [bikinis for different body types](https://fashion.allwomenstalk.com/whats-the-ideal-bikini-for-your-body-shape/)
 - [ban the bra](https://fashion.allwomenstalk.com/ban-boob-droop-with-these-groundbreaking-expert-tips/)
-- [bikini malfunction](https://fashion.allwomenstalk.com/how-to-avoid-embarrassing-swimsuit-malfunctions/)
-- [best body woman](https://fashion.allwomenstalk.com/these-body-positive-women-wore-bikinis-and-they-are-killing-it/)
-- [bobbs gifs](https://funny.allwomenstalk.com/things-your-boobs-would-say-if-they-could-talk/)
+- [perfect match crop top](https://fashion.allwomenstalk.com/types-of-bras-for-girls-who-have-not-yet-found-their-perfect-match/)
 - [big chested teens](https://fashion.allwomenstalk.com/fab-fashion-hacks-for-women-with-big-breasts/)
 - [best bra brands](https://fashion.allwomenstalk.com/the-best-bra-brands-for-girls-looking-to-hold-up-their-girls/)
-- [bikinis for different body types](https://fashion.allwomenstalk.com/whats-the-ideal-bikini-for-your-body-shape/)
-- [perfect match crop top](https://fashion.allwomenstalk.com/types-of-bras-for-girls-who-have-not-yet-found-their-perfect-match/)
+- [bobbs gifs](https://funny.allwomenstalk.com/things-your-boobs-would-say-if-they-could-talk/)
+- [bikini malfunction](https://fashion.allwomenstalk.com/how-to-avoid-embarrassing-swimsuit-malfunctions/)
+- [crop tops and bralettes](https://fashion.allwomenstalk.com/move-over-crop-tops-bralettes-are-here/)
+- [braless outfit](https://fashion.allwomenstalk.com/this-is-how-to-go-bra-free-this-summer/)
+- [best body woman](https://fashion.allwomenstalk.com/these-body-positive-women-wore-bikinis-and-they-are-killing-it/)
 - [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
 - [7 Tips for Buying a Bra ...](https://fashion.allwomenstalk.com/tips-for-buying-a-bra/)
 

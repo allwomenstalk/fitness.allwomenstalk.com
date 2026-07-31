@@ -16,16 +16,16 @@ Now you have goals for the next two weeks, so there's no good excuse for being l
 
 ## Related Posts
 
-- [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
+- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
+- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
+- [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
+- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
+- [exercise for bra bulge](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-bra-bulge/)
+- [burn 150 calories](https://fitness.allwomenstalk.com/the-minute-workout-thatll-burn-150-calories/)
 - [branden collinsworth yoga](https://fitness.allwomenstalk.com/2-minute-workout-videos-to-keep-you-fit-and-fabulous/)
 - [breast enhancement workout](https://fitness.allwomenstalk.com/breast-enhancing-workouts-to-add-to-your-routine/)
-- [can i do exercise on bed](https://fitness.allwomenstalk.com/yoga-you-can-do-right-in-your-own-bed/)
-- [5 minute total body workout](https://fitness.allwomenstalk.com/do-a-full-body-workout-with-moves-in-5-minutes/)
-- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
-- [some outdoor exercises will be great](https://fitness.allwomenstalk.com/outdoor-exercises-that-will-transform-your-body/)
-- [burn 150 calories](https://fitness.allwomenstalk.com/the-minute-workout-thatll-burn-150-calories/)
 - [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
-- [exercise for bra bulge](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-bra-bulge/)
+- [infographic fitness](https://fitness.allwomenstalk.com/these-fitness-challenge-infographics-will-help-you-get-healthy/)
 - [7 Helpful Tips for Getting into an Exercise Routin...](https://health.allwomenstalk.com/7-helpful-tips-for-getting-into-an-exercise-routine/)
 - [15 Tips on Getting Back to Exercise Routine after ...](https://allwomenstalk.com/getting-back-to-your-exercise-routine-after-a-break/)
 

@@ -56,16 +56,16 @@ What are your favorite workouts that don’t feel like workouts? Will you try an
 
 ## Related Posts
 
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [desert down dog yoga](https://fitness.allwomenstalk.com/easy-yoga-poses-to-get-you-started/)
-- [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
-- [6 major muscle groups](https://fitness.allwomenstalk.com/major-muscle-groups-to-work-out-without-fail/)
-- [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
-- [does yoga boost metabolism](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
-- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
-- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
-- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
+- [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
+- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
+- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
+- [6 major muscle groups](https://fitness.allwomenstalk.com/major-muscle-groups-to-work-out-without-fail/)
+- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
+- [does yoga boost metabolism](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
+- [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
 - [7 Great Ways to Exercise without Feeling like You ...](https://allwomenstalk.com/7-great-ways-to-exercise-without-feeling-like-you-are/)
 - [7 Ways to Exercise without Going to the Gym ...](https://weightloss.allwomenstalk.com/ways-to-exercise-without-going-to-the-gym/)
 

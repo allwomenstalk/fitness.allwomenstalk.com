@@ -54,16 +54,16 @@ Now you know how to perform a bunch of different types of squats! That means you
 
 ## Related Posts
 
-- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
-- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
-- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
 - [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
+- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
 - [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
-- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
-- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
+- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
 - [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
-- [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
+- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
+- [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
 - [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
+- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
+- [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
 - [22 Best Exercises for a Perfect Butt ...](https://weightloss.allwomenstalk.com/best-exercises-for-a-perfect-butt/)
 - [7 Ways to Achieve a Beautiful Butt ...](https://allwomenstalk.com/7-ways-to-achieve-a-beautiful-butt/)
 

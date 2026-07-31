@@ -43,15 +43,15 @@ So now that you have a few great medicine ball exercises to break up the workout
 ## Related Posts
 
 - [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
-- [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
 - [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
+- [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
 - [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
-- [how to get more gym members](https://fitness.allwomenstalk.com/ways-to-get-more-from-your-gym-membership/)
-- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
 - [best workout for quick results](https://fitness.allwomenstalk.com/simple-exercises-that-produce-great-results/)
+- [how to get more gym members](https://fitness.allwomenstalk.com/ways-to-get-more-from-your-gym-membership/)
+- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
 - [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
+- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [7 Great Bosu Ball Exercises ...](https://allwomenstalk.com/7-great-bosu-ball-exercises/)
 

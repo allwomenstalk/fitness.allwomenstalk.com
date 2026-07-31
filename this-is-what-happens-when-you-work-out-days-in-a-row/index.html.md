@@ -43,15 +43,15 @@ So after exercising 7 days in a row doing different workouts each day, I not onl
 
 ## Related Posts
 
-- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
-- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
 - [freckled yogi](https://fitness.allwomenstalk.com/build-strong-lean-muscle-with-this-beginner-yoga-sequence/)
-- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
-- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
-- [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
-- [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
+- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
 - [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
+- [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
+- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
 - [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
 - [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
 - [7 Step Training Schedule to Shed Those Pounds ...](https://health.allwomenstalk.com/step-training-schedule-to-shed-those-pounds/)
 - [7 Body Changes from Running You Should Expect ...](https://health.allwomenstalk.com/body-changes-from-running-you-should-expect/)

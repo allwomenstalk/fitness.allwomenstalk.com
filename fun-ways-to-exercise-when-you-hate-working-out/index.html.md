@@ -64,16 +64,16 @@ Here’s the thing, the word exercise is one that every one in the world hates. 
 
 ## Related Posts
 
-- [3 Exercises You Can do in the Office so You Have N...](https://fitness.allwomenstalk.com/exercises-you-can-do-in-the-office-so-you-have-no-excuse-not-to-work-out/)
-- [Want to Build Abs? Read This!](https://fitness.allwomenstalk.com/want-to-build-abs-read-this/)
 - [Super Simple Steps to Get Fit That Won't Mess up Y...](https://fitness.allwomenstalk.com/super-simple-steps-to-get-fit-that-wont-mess-up-your-life/)
+- [3 Exercises You Can do in the Office so You Have N...](https://fitness.allwomenstalk.com/exercises-you-can-do-in-the-office-so-you-have-no-excuse-not-to-work-out/)
 - [6 Exercises to Give Your Bust a Boost ...](https://fitness.allwomenstalk.com/exercises-to-give-your-bust-a-boost/)
+- [Find Your Fitness Mojo Once and for All ...](https://fitness.allwomenstalk.com/find-your-fitness-mojo-once-and-for-all/)
 - [befit gym](https://fitness.allwomenstalk.com/the-gym-commandments-to-stick-to-if-you-want-to-be-fit/)
+- [Look Here if You're Trying to Make Yourself Actual...](https://fitness.allwomenstalk.com/look-here-if-youre-trying-to-make-yourself-actually-enjoy-exercise/)
+- [How to Make the Most of the College Gym ...](https://fitness.allwomenstalk.com/how-to-make-the-most-of-the-college-gym/)
+- [Want to Build Abs? Read This!](https://fitness.allwomenstalk.com/want-to-build-abs-read-this/)
 - [turning your love of fitness into a business](https://fitness.allwomenstalk.com/how-to-turn-your-love-for-fitness-into-a-career/)
 - [How to Make a Home Gym with Items You Already Own ...](https://fitness.allwomenstalk.com/how-to-make-a-home-gym-with-items-you-already-own/)
-- [How to Make the Most of the College Gym ...](https://fitness.allwomenstalk.com/how-to-make-the-most-of-the-college-gym/)
-- [Find Your Fitness Mojo Once and for All ...](https://fitness.allwomenstalk.com/find-your-fitness-mojo-once-and-for-all/)
-- [Look Here if You're Trying to Make Yourself Actual...](https://fitness.allwomenstalk.com/look-here-if-youre-trying-to-make-yourself-actually-enjoy-exercise/)
 - [8 Fun Ways to Exercise This Summer ...](https://weightloss.allwomenstalk.com/fun-ways-to-exercise-this-summer/)
 - [10 Ways to Make Exercise Fun ...](https://weightloss.allwomenstalk.com/10-ways-to-make-exercise-fun/)
 

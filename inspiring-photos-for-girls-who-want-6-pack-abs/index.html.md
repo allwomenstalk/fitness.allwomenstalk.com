@@ -160,16 +160,16 @@ Fitness champ and model [@andreiabrazier](https://www.facebook.com/unsupportedbr
 
 ## Related Posts
 
-- [fitspo pictures](https://fitness.allwomenstalk.com/fitspo-photos-that-will-inspire-you-to-get-fit-right-now/)
-- [pure fashion and beauty photos](https://beauty.allwomenstalk.com/photos-of-gorge-black-girls-who-are-pure-beautygoals/)
-- [pictures of a gorge](https://travel.allwomenstalk.com/insanely-gorge-national-geographic-pictures-for-people-who-appreciate-nature/)
 - [genius packing hacks](https://travel.allwomenstalk.com/instagram-travel-hacks-that-are-borderline-genius/)
+- [fitspo pictures](https://fitness.allwomenstalk.com/fitspo-photos-that-will-inspire-you-to-get-fit-right-now/)
 - [kayla itsines instagram](https://fitness.allwomenstalk.com/instagram-fitspiration-for-girls-trying-to-lose-weight/)
+- [pure fashion and beauty photos](https://beauty.allwomenstalk.com/photos-of-gorge-black-girls-who-are-pure-beautygoals/)
 - [selfie pics of ladies](https://lifestyle.allwomenstalk.com/killer-selfie-inspo-for-girls-who-want-to-dominate-instagram/)
-- [funny dad instagram](https://parenting.allwomenstalk.com/this-dads-instagram-shows-the-brutal-reality-of-raising-kids/)
-- [gee's golden langur predators](https://lifestyle.allwomenstalk.com/these-are-most-awesome-wildlife-photographers-of-the-year/)
-- [travelpic](https://travel.allwomenstalk.com/envy-worthy-travel-pic-inspos-to-fuel-your-own-insta-account/)
 - [spicy selfie](https://beauty.allwomenstalk.com/fun-poses-for-girls-who-love-selfies/)
+- [gee's golden langur predators](https://lifestyle.allwomenstalk.com/these-are-most-awesome-wildlife-photographers-of-the-year/)
+- [pictures of a gorge](https://travel.allwomenstalk.com/insanely-gorge-national-geographic-pictures-for-people-who-appreciate-nature/)
+- [funny dad instagram](https://parenting.allwomenstalk.com/this-dads-instagram-shows-the-brutal-reality-of-raising-kids/)
+- [travelpic](https://travel.allwomenstalk.com/envy-worthy-travel-pic-inspos-to-fuel-your-own-insta-account/)
 - [31 Incredibly Genius Ways for Ladies to Get Killer...](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 - [8 Movies to Inspire You to Get Fit ...](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 

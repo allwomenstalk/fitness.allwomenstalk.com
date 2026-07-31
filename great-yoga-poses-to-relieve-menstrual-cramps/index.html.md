@@ -56,16 +56,16 @@ These are the yoga poses I like to turn to when the dreaded menstrual cramps set
 
 ## Related Posts
 
-- [neem oil benefits](https://diy.allwomenstalk.com/great-ways-to-use-neem-oil/)
-- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
-- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
-- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
-- [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
 - [oils for gum health](https://health.allwomenstalk.com/essential-oils-that-you-can-use-for-healthy-teeth-and-gums/)
-- [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
-- [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
+- [combating water retention](https://health.allwomenstalk.com/ways-to-fight-water-retention/)
 - [uses for tea](https://diy.allwomenstalk.com/interesting-ways-you-can-use-tea/)
+- [home remedies with honey](https://diy.allwomenstalk.com/homemade-remedies-using-honey/)
+- [honey for warts](https://health.allwomenstalk.com/homemade-remedies-for-warts/)
+- [best herbs to boost immune system](https://food.allwomenstalk.com/best-herbs-to-boost-immunity/)
+- [neem oil benefits](https://diy.allwomenstalk.com/great-ways-to-use-neem-oil/)
+- [how to hide a hangover](https://beauty.allwomenstalk.com/got-a-hangover-surefire-ways-to-hide-it/)
 - [ear pain in-flight remedies](https://travel.allwomenstalk.com/ways-to-cope-with-airplane-ear-pain/)
+- [how to properly use vicks](https://diy.allwomenstalk.com/ways-to-use-vicks-vapor-rub/)
 - [7 Ingenious Exercises That Could Help Those Horrib...](https://health.allwomenstalk.com/ingenious-exercises-that-could-help-those-horribly-painful-period-cramps/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 

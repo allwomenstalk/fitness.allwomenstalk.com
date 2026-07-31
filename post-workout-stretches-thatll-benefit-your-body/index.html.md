@@ -43,15 +43,15 @@ With all these post workout stretches; are you ready to feel the difference in m
 ## Related Posts
 
 - [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
-- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
-- [how's that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
-- [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
-- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
 - [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
+- [how's that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
 - [smartbmicalculator](https://fitness.allwomenstalk.com/how-to-work-out-how-fit-you-are/)
-- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
-- [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
+- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
 - [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
+- [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
+- [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
+- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
+- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
 - [The Truth about Stretching ...](https://allwomenstalk.com/the-truth-about-stretching/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

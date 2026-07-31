@@ -44,16 +44,16 @@ This is the kind of yoga for when you are taking a day off from working out but 
 
 ## Related Posts
 
-- [How Long ⏳ Should I 🤔 Boil an Egg 🥚?](https://food.allwomenstalk.com/how-long-should-i-boil-an-egg/)
-- [Are 🤔 Women in Love Crazy?](https://love.allwomenstalk.com/are-women-in-love-crazy/)
 - [pedalstole](https://love.allwomenstalk.com/is-a-break-really-the-end-of-your-relationship/)
 - [Do 🤔 CEOs Make Too Much Money ?](https://money.allwomenstalk.com/do-ceos-make-too-much-money/)
-- [Did You Know 🤔 the Way You Use Social Media Can H...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
-- [How Long Should Your Monthly Cycle Be?](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
-- [Did You Know 🤔 There Are 5 Different Types of Bod...](https://weightloss.allwomenstalk.com/did-you-know-there-are-different-types-of-body-fat/)
 - [when not to keep a secret](https://lifestyle.allwomenstalk.com/when-is-it-okay-to-keep-a-secret/)
-- [What is Consent ?](https://love.allwomenstalk.com/what-is-consent/)
 - [Do You 🤔 Wash Your Sunglasses ?](https://skincare.allwomenstalk.com/do-you-wash-your-sunglasses/)
+- [What is Consent ?](https://love.allwomenstalk.com/what-is-consent/)
+- [Are 🤔 Women in Love Crazy?](https://love.allwomenstalk.com/are-women-in-love-crazy/)
+- [How Long Should Your Monthly Cycle Be?](https://health.allwomenstalk.com/how-long-should-your-monthly-cycle-be/)
+- [Did You Know 🤔 the Way You Use Social Media Can H...](https://apps.allwomenstalk.com/did-you-know-the-way-you-use-social-media-can-hint-at-depression/)
+- [How Long ⏳ Should I 🤔 Boil an Egg 🥚?](https://food.allwomenstalk.com/how-long-should-i-boil-an-egg/)
+- [Did You Know 🤔 There Are 5 Different Types of Bod...](https://weightloss.allwomenstalk.com/did-you-know-there-are-different-types-of-body-fat/)
 - [Yoga Abs Workout, Anyone?](https://allwomenstalk.com/yoga-abs-workout-anyone/)
 - [Yoga for the Time-Challenged, Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
 

@@ -38,16 +38,16 @@ An EDM playlist put together by Billboard.com includes, Alesso, deadmau#5, and T
 
 ## Related Posts
 
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
 - [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
 - [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
-- [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
-- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
 - [7 Reasons Dance is Good for You ...](https://health.allwomenstalk.com/7-reasons-dance-is-good-for-you/)
 - [7 Reasons to Kick up Your Workout Routine You Can'...](https://health.allwomenstalk.com/reasons-to-kick-up-your-workout-routine-you-cant-ignore/)
 

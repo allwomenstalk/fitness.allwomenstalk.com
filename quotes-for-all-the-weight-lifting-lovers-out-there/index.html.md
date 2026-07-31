@@ -64,16 +64,16 @@ Which one is your favorite quote? Do you have others to add?
 
 ## Related Posts
 
-- [quotes from pixar](https://movies.allwomenstalk.com/the-most-inspirational-and-life-affirming-quotes-from-pixar-movies/)
-- [quotes on freedom and independence](https://lifestyle.allwomenstalk.com/quotes-to-give-you-all-the-feels-of-freedom-this-independence-day/)
-- [i don't love anymore quotes](https://love.allwomenstalk.com/i-dont-love-him-anymore-quotes-to-help-you-let-go-and-move-on/)
-- [make it through quotes](https://inspiration.allwomenstalk.com/inspiration-quotes-to-get-you-through-it-all/)
-- [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
 - [girl move on quotes](https://inspiration.allwomenstalk.com/motivational-life-changing-quotes-for-girls-who-are-stuck-in-a-rut-but-want-to-change/)
-- [intelligence mantras](https://inspiration.allwomenstalk.com/everyday-mantras-of-intelligent-people/)
-- [beautiful black woman quotes](https://inspiration.allwomenstalk.com/quotes-about-black-women-that-will-make-you-love-your-melanin/)
 - [most awe inspiring quotes](https://lifestyle.allwomenstalk.com/awe-inspiring-quotes-from-the-dnc-rnc-conventions-that-every-woman-can-relate-to/)
+- [top mean girls quotes](https://inspiration.allwomenstalk.com/the-most-memorable-and-funniest-quotes-from-mean-girls-well-never-forget/)
+- [intelligence mantras](https://inspiration.allwomenstalk.com/everyday-mantras-of-intelligent-people/)
 - [ronald reagan quotes marines](https://lifestyle.allwomenstalk.com/phenomenal-memorial-day-quotes-that-will-remind-you-what-the-holiday-is-really-about/)
+- [beautiful black woman quotes](https://inspiration.allwomenstalk.com/quotes-about-black-women-that-will-make-you-love-your-melanin/)
+- [make it through quotes](https://inspiration.allwomenstalk.com/inspiration-quotes-to-get-you-through-it-all/)
+- [quotes from pixar](https://movies.allwomenstalk.com/the-most-inspirational-and-life-affirming-quotes-from-pixar-movies/)
+- [i don't love anymore quotes](https://love.allwomenstalk.com/i-dont-love-him-anymore-quotes-to-help-you-let-go-and-move-on/)
+- [quotes on freedom and independence](https://lifestyle.allwomenstalk.com/quotes-to-give-you-all-the-feels-of-freedom-this-independence-day/)
 - [30 Motivational Health and Exercise Quotes ...](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
 - [Weight Your Life ...](https://allwomenstalk.com/weight-your-life/)
 

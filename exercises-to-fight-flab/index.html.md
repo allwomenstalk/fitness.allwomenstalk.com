@@ -42,15 +42,15 @@ Hope you have enjoyed all these great fitness videos to help you to tone up, tri
 
 ## Related Posts
 
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
-- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
-- [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
-- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
-- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
 - [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
 - [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
+- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
+- [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
+- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
+- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
 - [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
 - [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)

@@ -42,16 +42,16 @@ Now, all of you short ladies have a few new exercises to try. Which one of these
 
 ## Related Posts
 
+- [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
+- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
+- [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
 - [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
-- [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
-- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
-- [superwoman exercise benefits](https://fitness.allwomenstalk.com/how-exercising-turns-a-normal-woman-into-superwoman/)
 - [7 week body transformation](https://fitness.allwomenstalk.com/weeks-to-your-best-body-yet/)
 - [victoria's secret jumper](https://fitness.allwomenstalk.com/victorias-secret-workout-tips-for-wannabe-angels/)
 - [full body workout move](https://fitness.allwomenstalk.com/total-body-workout-moves-thatll-really-pack-a-punch/)
-- [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
-- [girls w shape](https://fitness.allwomenstalk.com/the-best-exercise-for-girls-with-bad-knees/)
-- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
+- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
+- [superwoman exercise benefits](https://fitness.allwomenstalk.com/how-exercising-turns-a-normal-woman-into-superwoman/)
+- [do planks get rid of love handles](https://fitness.allwomenstalk.com/exercises-for-love-handles-for-girls-who-dont-love-them/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 

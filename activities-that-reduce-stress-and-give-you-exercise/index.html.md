@@ -56,15 +56,15 @@ There’s nothing better than losing calories while gaining peace of mind. It’
 
 ## Related Posts
 
-- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
+- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
+- [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
+- [how to keep busy yourself](https://lifestyle.allwomenstalk.com/ways-to-keep-yourself-busy-and-productive/)
 - [how do i free my mind](https://inspiration.allwomenstalk.com/ways-to-free-your-mind-immediately-that-really-do-work/)
 - [simple steps that lead to less stress](https://inspiration.allwomenstalk.com/easy-steps-to-reduce-stress-in-your-life/)
 - [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
 - [how to have a relaxing bath](https://beauty.allwomenstalk.com/ways-to-have-a-relaxing-bath/)
-- [how to keep busy yourself](https://lifestyle.allwomenstalk.com/ways-to-keep-yourself-busy-and-productive/)
-- [smallstuffgirl](https://health.allwomenstalk.com/tips-on-how-to-stress-less/)
+- [meditation podcast for beginners](https://lifestyle.allwomenstalk.com/meditation-podcasts-to-help-you-ease-into-practicing-meditation/)
 - [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
-- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
 - [how to handle post traumatic stress disorder](https://health.allwomenstalk.com/ways-to-handle-post-traumatic-stress/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 - [7 Tips to Make More Time for Exercise ...](https://health.allwomenstalk.com/tips-to-make-more-time-for-exercise/)

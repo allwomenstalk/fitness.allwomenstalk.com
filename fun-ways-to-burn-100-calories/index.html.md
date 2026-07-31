@@ -67,16 +67,16 @@ _wfmz.com_
 
 ## Related Posts
 
-- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
-- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
-- [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
-- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
-- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
 - [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
+- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
 - [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
+- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [10 Ways to Burn More Calories during the Day ...](https://allwomenstalk.com/10-ways-to-burn-more-calories-during-the-day/)
 - [7 Super Easy Ways to Burn More Calories ...](https://weightloss.allwomenstalk.com/super-easy-ways-to-burn-more-calories/)
 

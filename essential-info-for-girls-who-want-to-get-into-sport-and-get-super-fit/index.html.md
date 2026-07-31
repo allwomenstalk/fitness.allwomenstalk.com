@@ -42,16 +42,16 @@ I am going to dust off my badminton racket and get to hitting the shuttlecock ar
 
 ## Related Posts
 
-- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
-- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
-- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
-- [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
-- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
-- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
-- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
 - [ballerina thighs](https://fitness.allwomenstalk.com/insanely-effective-ballet-moves-for-girls-who-are-struggling-to-get-thinner-thighs/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
+- [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
+- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
+- [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
+- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
+- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
 - [9 Fitness Tips for Beginners Every Girl Should Kno...](https://health.allwomenstalk.com/fitness-tips-for-beginners-every-girl-should-know/)
 - [Pro-Ahtlete Rituals to Follow for Girls Who Want t...](https://fitness.allwomenstalk.com/strange-pro-athlete-tips-that-work/)
 

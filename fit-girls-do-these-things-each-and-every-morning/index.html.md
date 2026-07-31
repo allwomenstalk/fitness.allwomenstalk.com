@@ -76,14 +76,14 @@ Which of these tips do you plan to start tomorrow morning?
 
 - [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
 - [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
-- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
 - [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
-- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
-- [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
+- [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
 - [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
 - [curvy toned body goals female](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-short-girls/)
 - [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
-- [jiggle jiggle dance tutorial](https://fitness.allwomenstalk.com/girls-who-hate-their-thighs-should-add-these-moves-to-their-routine/)
+- [workout that works all muscles](https://fitness.allwomenstalk.com/exercises-that-target-every-muscle-group-for-those-who-want-everything-toned-at-once/)
+- [sally mcrae height](https://fitness.allwomenstalk.com/exercises-for-super-clumsy-women/)
+- [shoulder exercise butterfly](https://fitness.allwomenstalk.com/shoulder-exercises-for-girls-who-want-to-be-stronger/)
 - [Pro-Ahtlete Rituals to Follow for Girls Who Want t...](https://fitness.allwomenstalk.com/strange-pro-athlete-tips-that-work/)
 - [Here Are the Hottest Ways for a Woman to Work out ...](https://fitness.allwomenstalk.com/here-are-the-hottest-ways-for-a-woman-to-work-out/)
 

@@ -106,16 +106,16 @@ Drinking water sucks but it's a need when you are working out, so why not spice 
 
 ## Related Posts
 
-- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
-- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
-- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
-- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
-- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
-- [7' female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
 - [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
-- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
-- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
 - [marshalls foam roller](https://weightloss.allwomenstalk.com/share-your-fav-fitness-hack-and-win-50-for-these-amazing-workout-clothes/)
+- [zumba dance video](https://fitness.allwomenstalk.com/zumba-videos-thatll-give-you-a-great-workout/)
+- [yoga colour](https://fitness.allwomenstalk.com/ways-that-color-can-actually-influence-your-workout/)
+- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
+- [conqueror challenge star wars](https://fitness.allwomenstalk.com/the-star-wars-exercise-challenge/)
+- [cosmopolitan workout](https://fitness.allwomenstalk.com/try-cosmos-turbo-ab-workout-today/)
+- [taylor lautner ab workout](https://fitness.allwomenstalk.com/workout-videos-inspired-by-celebrities/)
+- [loreal paris stylo eye eternal blue](https://fitness.allwomenstalk.com/a-2-week-guide-to-getting-your-exercise-groove-back/)
+- [7' female model](https://fitness.allwomenstalk.com/places-to-get-fit-while-learning-self-defense/)
 - [10 Ways to Make Exercise Fun ...](https://weightloss.allwomenstalk.com/10-ways-to-make-exercise-fun/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 

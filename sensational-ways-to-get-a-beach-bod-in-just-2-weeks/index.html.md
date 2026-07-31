@@ -56,16 +56,16 @@ Do you have any other getting-your-beach-bod tips to share? How do you prepare?
 
 ## Related Posts
 
-- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
-- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
 - [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
 - [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
-- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
+- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
 - [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
-- [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
-- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
+- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
+- [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [8 Steps to a Bikini Ready Body ...](https://allwomenstalk.com/8-steps-to-a-bikini-ready-body/)
 

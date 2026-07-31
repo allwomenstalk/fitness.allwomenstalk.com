@@ -16,16 +16,16 @@ Now you two have something fun to do on date night! Have you ever worked out wit
 
 ## Related Posts
 
-- [one night stand short story](https://love.allwomenstalk.com/short-story-sex-with-a-one-night-stand/)
 - [how to initiate sec](https://love.allwomenstalk.com/sultry-lines-to-use-to-initiate-sex/)
-- [arousing dates](https://love.allwomenstalk.com/types-of-dates-thatll-build-sexual-tension/)
+- [one night stand short story](https://love.allwomenstalk.com/short-story-sex-with-a-one-night-stand/)
+- [benefits of going celibate](https://love.allwomenstalk.com/the-benefits-of-being-celibate/)
 - [best hookup ever](https://love.allwomenstalk.com/ways-to-be-the-best-sex-hes-ever-had/)
 - [how to respect a guy](https://love.allwomenstalk.com/ways-he-should-be-respectful-in-the-bedroom/)
-- [benefits of going celibate](https://love.allwomenstalk.com/the-benefits-of-being-celibate/)
-- [why would a guy fidgets around me](https://love.allwomenstalk.com/dont-mistake-these-things-for-sexual-tension/)
 - [kissing techniques videos](https://love.allwomenstalk.com/videos-thatll-give-you-kissing-advice/)
 - [different sexual identities](https://love.allwomenstalk.com/different-types-of-sexual-orientations/)
 - [what does sexually frustrated mean for a guy](https://love.allwomenstalk.com/ways-to-deal-with-your-sexual-frustration/)
+- [why would a guy fidgets around me](https://love.allwomenstalk.com/dont-mistake-these-things-for-sexual-tension/)
+- [arousing dates](https://love.allwomenstalk.com/types-of-dates-thatll-build-sexual-tension/)
 - [7 Ways to Impress Your Man ...](https://allwomenstalk.com/7-ways-to-impress-your-man/)
 - [7 Ways to Make over Your Man ...](https://allwomenstalk.com/7-ways-to-make-over-your-man/)
 

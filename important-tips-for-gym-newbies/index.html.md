@@ -47,15 +47,15 @@ Sources:
 
 ## Related Posts
 
-- [things to write on diary](https://lifestyle.allwomenstalk.com/unique-new-things-to-write-down-in-your-diary/)
-- [fabric clipboards](https://diy.allwomenstalk.com/delightful-ways-to-give-boring-clipboards-a-makeover/)
-- [girls totes](https://lifestyle.allwomenstalk.com/ways-the-struggle-is-real-for-tall-girls/)
-- [hgtv female renovators](https://diy.allwomenstalk.com/watch-these-shows-before-renovating-your-home/)
-- [companies like ipsy](https://teen.allwomenstalk.com/subscriptions-every-college-girl-needs/)
-- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
-- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
 - [things to accomplish by 30](https://lifestyle.allwomenstalk.com/what-every-woman-should-accomplish-before-turning/)
+- [fabric clipboards](https://diy.allwomenstalk.com/delightful-ways-to-give-boring-clipboards-a-makeover/)
+- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
+- [girls totes](https://lifestyle.allwomenstalk.com/ways-the-struggle-is-real-for-tall-girls/)
 - [why are girls pretty](https://beauty.allwomenstalk.com/secrets-that-pretty-girls-wont-tell-you/)
+- [things to write on diary](https://lifestyle.allwomenstalk.com/unique-new-things-to-write-down-in-your-diary/)
+- [companies like ipsy](https://teen.allwomenstalk.com/subscriptions-every-college-girl-needs/)
+- [hgtv female renovators](https://diy.allwomenstalk.com/watch-these-shows-before-renovating-your-home/)
+- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
 - [ferris bueller fight club](https://movies.allwomenstalk.com/movies-thatll-inspire-you-to-stop-giving-a-damn/)
 - [7 Helpful Tips for Getting into an Exercise Routin...](https://health.allwomenstalk.com/7-helpful-tips-for-getting-into-an-exercise-routine/)
 - [9 Fitness Tips for Beginners Every Girl Should Kno...](https://health.allwomenstalk.com/fitness-tips-for-beginners-every-girl-should-know/)
