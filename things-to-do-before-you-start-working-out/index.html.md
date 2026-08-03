@@ -3,7 +3,7 @@ title: "7 Things to do before You Start Working out ..."
 description: "Check in with Your Doctor; Choose a Workout; Shop for Workout Wear; Shop for the Right Shoes; Check Workout Equipment; More ..."
 url: "https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/"
 category: "fitness"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Things to do before You Start Working out ...
@@ -42,16 +42,16 @@ These’re 7 things to do before you begin working out. What’s your favorite t
 
 ## Related Posts
 
-- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
-- [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
-- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
-- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
-- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
-- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
 - [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
-- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
 - [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
+- [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
+- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
+- [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
 - [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
+- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
+- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
+- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
 - [7 Ways to Start Lifting Weights ...](https://fitene.com/ways-to-start-lifting-weights/)
 - [7 Helpful Tips for Getting into an Exercise Routin...](https://health.allwomenstalk.com/7-helpful-tips-for-getting-into-an-exercise-routine/)
 

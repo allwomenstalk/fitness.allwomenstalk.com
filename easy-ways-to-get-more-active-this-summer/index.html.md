@@ -3,7 +3,7 @@ title: "7 Easy Ways to Get More Active This Summer ..."
 description: "Do What You Loved as a Child; Find Exercise That’s Not Exercise; Try Swimming; Find Alternative Transportation Methods; Exercise with Your Friends; More ..."
 url: "https://fitness.allwomenstalk.com/easy-ways-to-get-more-active-this-summer/"
 category: "fitness"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Easy Ways to Get More Active This Summer ...
