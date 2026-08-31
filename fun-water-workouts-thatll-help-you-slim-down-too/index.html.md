@@ -42,13 +42,13 @@ Now that you have great water workouts to add to your current routine, are you r
 
 ## Related Posts
 
-- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
-- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
+- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
 - [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
-- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
+- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
 - [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
 - [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
-- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
+- [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
+- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
 - [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
 - [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
 - [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)

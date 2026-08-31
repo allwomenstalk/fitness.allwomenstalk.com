@@ -42,16 +42,16 @@ Do you play golf? Did you know it was such a great workout?
 
 ## Related Posts
 
-- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
-- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
 - [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
-- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
-- [squat types](https://fitness.allwomenstalk.com/different-squat-variations-for-a-killer-derrier/)
-- [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
-- [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
-- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
 - [workout for long legs](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-tall-girls/)
+- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
+- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
+- [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
+- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
+- [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
+- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
 - [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
+- [squat types](https://fitness.allwomenstalk.com/different-squat-variations-for-a-killer-derrier/)
 - [8 Exercises for Morning Workout Routine – Are You ...](https://weightloss.allwomenstalk.com/exercises-for-morning-workout-routine-are-you-doing-them-right/)
 - [Can Video Games Actually Help You Get Fit?](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
 

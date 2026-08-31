@@ -42,15 +42,15 @@ While Pilates isn’t a replacement for cardio, weight training, or healthy eati
 
 ## Related Posts
 
-- [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
-- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
 - [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
+- [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
+- [how to be a yoga instructor](https://fitness.allwomenstalk.com/ways-to-teach-yourself-yoga-without-any-experience/)
+- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
+- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
 - [good excersises](https://fitness.allwomenstalk.com/fab-ab-tips-so-you-can-achieve-a-flat-stomach/)
 - [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
-- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
-- [how to be a yoga instructor](https://fitness.allwomenstalk.com/ways-to-teach-yourself-yoga-without-any-experience/)
-- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
+- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
 - [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
 - [Top 7 Ways to Tone Your Abs at Home ...](https://allwomenstalk.com/top-7-ways-to-tone-your-abs-at-home/)
 - [7 Benefits of Pilates ...](https://allwomenstalk.com/7-benefits-of-pilates/)

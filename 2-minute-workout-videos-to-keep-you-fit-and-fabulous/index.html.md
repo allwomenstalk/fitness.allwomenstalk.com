@@ -54,16 +54,16 @@ You don't want to neglect your beautiful body. Treat it the way it deserves by e
 
 ## Related Posts
 
-- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
-- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
-- [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
-- [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
-- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
 - [workout for long legs](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-tall-girls/)
+- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
+- [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
+- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
+- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
+- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
 - [paris la maximalist eyeshadow blinged brilliant](https://fitness.allwomenstalk.com/dont-use-these-emotional-excuses-to-skip-your-workout/)
 - [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
-- [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
-- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
+- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
+- [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
 - [Have Fun While Getting Fit - Exercises to do While...](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
 - [Work out While Watching These Motivational YouTube...](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
 

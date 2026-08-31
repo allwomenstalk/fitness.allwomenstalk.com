@@ -14,16 +14,16 @@ You don't even have to leave the couch to get fit, so you can't make any more ex
 
 ## Related Posts
 
-- [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
-- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
-- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
-- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
-- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
-- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
-- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
-- [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
 - [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
+- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
+- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
+- [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
+- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
+- [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
+- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
 - [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
+- [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
 - [10 Step Full Body Exercise Program ...](https://fitene.com/full-body-exercise-program/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 

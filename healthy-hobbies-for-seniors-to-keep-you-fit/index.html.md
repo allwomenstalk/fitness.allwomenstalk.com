@@ -42,16 +42,16 @@ I’ve picked out healthy hobbies for seniors that do not take much long term co
 
 ## Related Posts
 
-- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
-- [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
-- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
-- [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
 - [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
 - [jennifer aniston fit](https://fitness.allwomenstalk.com/fitness-tips-from-jennifer-aniston/)
 - [what type of yoga is most commonly practiced in am...](https://fitness.allwomenstalk.com/classic-styles-of-yoga-to-try/)
 - [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
 - [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
 - [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
+- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
+- [thinner thigh exercise](https://fitness.allwomenstalk.com/minutes-to-thinner-thighs/)
+- [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
+- [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
 - [7 Fun Ways a Busy Mom Can Exercise ...](https://parenting.allwomenstalk.com/7-fun-ways-a-busy-mom-can-exercise/)
 - [7 Ways to Exercise with Your Kids ...](https://allwomenstalk.com/7-ways-to-exercise-with-your-kids/)
 

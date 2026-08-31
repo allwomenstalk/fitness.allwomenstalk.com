@@ -42,16 +42,16 @@ If you are ready to relax your body and mind, first get moving with these great 
 
 ## Related Posts
 
-- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
-- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
-- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
+- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
 - [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
 - [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
-- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
-- [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
+- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
+- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
 - [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
+- [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
 - [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
-- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
+- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
+- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [8 Best Workouts for Women in Their 20's ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-20s/)
 

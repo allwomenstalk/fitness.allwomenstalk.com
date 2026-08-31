@@ -75,15 +75,15 @@ Summer is a great time to get outside and get moving! Save your indoor workouts 
 ## Related Posts
 
 - [making the most out of summer](https://lifestyle.allwomenstalk.com/wonderful-ways-to-make-the-most-out-of-your-summer/)
-- [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
-- [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
-- [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
-- [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
-- [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
-- [summer camp for single adults](https://travel.allwomenstalk.com/super-summer-camps-for-adults-for-a-vacation-with-a-difference/)
 - [affordable summer camps](https://parenting.allwomenstalk.com/cheap-alternatives-to-summer-camp/)
-- [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
+- [summer party cocktails](https://food.allwomenstalk.com/amazing-summer-cocktails/)
+- [enjoying your summer](https://lifestyle.allwomenstalk.com/ways-working-people-enjoy-summer-that-you-can-try-too/)
+- [summer birthday themes](https://lifestyle.allwomenstalk.com/ideas-for-summer-party-themes/)
+- [beach bag checklist](https://lifestyle.allwomenstalk.com/essentials-for-your-beach-bag/)
+- [alternatives to internships](https://inspiration.allwomenstalk.com/alternatives-to-an-internship-this-summer/)
 - [zit greek drink](https://food.allwomenstalk.com/slimming-greek-yogurt-recipes/)
+- [things to do at home in the summer](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-this-summer/)
+- [summer camp for single adults](https://travel.allwomenstalk.com/super-summer-camps-for-adults-for-a-vacation-with-a-difference/)
 - [9 Easy Ways to Lose Weight in Summer ...](https://weightloss.allwomenstalk.com/easy-ways-to-lose-weight-in-summer/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 

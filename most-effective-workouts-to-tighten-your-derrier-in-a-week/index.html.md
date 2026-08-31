@@ -42,16 +42,16 @@ How do you work your rear end? I like the old squat and lunge routine, but I’m
 
 ## Related Posts
 
-- [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
+- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
 - [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
-- [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
-- [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
-- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
 - [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
 - [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
-- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
+- [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
+- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
 - [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
+- [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
 - [7 Best Exercises to Tone Your Legs ...](https://allwomenstalk.com/7-best-exercises-to-tone-your-legs/)
 - [7 Best Exercises for Toning Your Butt at Home ...](https://allwomenstalk.com/7-best-exercises-for-toning-your-butt-at-home/)
 

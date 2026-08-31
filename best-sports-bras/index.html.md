@@ -117,15 +117,15 @@ There are so many great sports bras out there that it would be a shame to be stu
 ## Related Posts
 
 - [lingerie perhaps for parts of chest](https://fashion.allwomenstalk.com/undergarments-you-need-in-your-lingerie-chest/)
-- [kylie victoria secret](https://fashion.allwomenstalk.com/startling-things-you-never-knew-about-victorias-secret-supermodels/)
 - [bra rules](https://fashion.allwomenstalk.com/rules-of-bra-care-you-should-be-following/)
-- [lingerie first night](https://wedding.allwomenstalk.com/bridal-lingerie-pieces-to-impress-your-man/)
 - [kelly brook lingere](https://fashion.allwomenstalk.com/reasons-were-loving-kelly-brooks-lingerie-range/)
-- [wrong bra size signs](https://fashion.allwomenstalk.com/signs-youre-wearing-the-wrong-bra-size/)
-- [hottest one piece swimsuits](https://swimwear.allwomenstalk.com/one-piece-swimsuits-that-will-make-you-feel-fabulous-and-sexy/)
+- [kylie victoria secret](https://fashion.allwomenstalk.com/startling-things-you-never-knew-about-victorias-secret-supermodels/)
+- [bikini magic trick](https://fashion.allwomenstalk.com/ways-to-address-common-body-issues-when-wearing-a-bikini/)
 - [bra slides down in front](https://funny.allwomenstalk.com/bra-issues-every-woman-has-to-deal-with/)
 - [pretty secrets ella bra](https://fashion.allwomenstalk.com/of-this-seasons-cutest-lingerie-sets-for-everyday/)
-- [bikini magic trick](https://fashion.allwomenstalk.com/ways-to-address-common-body-issues-when-wearing-a-bikini/)
+- [hottest one piece swimsuits](https://swimwear.allwomenstalk.com/one-piece-swimsuits-that-will-make-you-feel-fabulous-and-sexy/)
+- [lingerie first night](https://wedding.allwomenstalk.com/bridal-lingerie-pieces-to-impress-your-man/)
+- [wrong bra size signs](https://fashion.allwomenstalk.com/signs-youre-wearing-the-wrong-bra-size/)
 - [Find the Right Bra ...](https://allwomenstalk.com/find-the-right-bra-2/)
 - [Shopping for Sports Bras?](https://allwomenstalk.com/shopping-for-sports-bra/)
 

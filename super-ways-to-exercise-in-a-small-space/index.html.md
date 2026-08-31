@@ -56,16 +56,16 @@ Living in a small space shouldn't deter you from keeping fit; there are many way
 
 ## Related Posts
 
-- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
-- [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
-- [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
-- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
-- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
 - [get in shape by walking](https://fitness.allwomenstalk.com/of-the-best-ways-to-get-in-shape-walking/)
-- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
-- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
+- [fitness tips](https://fitness.allwomenstalk.com/global-fitness-tips-that-work/)
+- [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
+- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
 - [hobbies that keep you in shape](https://fitness.allwomenstalk.com/healthy-hobbies-for-seniors-to-keep-you-fit/)
 - [how to get rid of cankles naturally](https://fitness.allwomenstalk.com/awesome-activities-for-slimming-your-cankles/)
+- [jackie warner workout](https://fitness.allwomenstalk.com/tips-from-fitness-gurus-to-start-following-today/)
+- [yoga stretches at your desk](https://fitness.allwomenstalk.com/simple-yoga-stretches-to-perform-at-your-desk/)
+- [fitness inspiration](https://fitness.allwomenstalk.com/ways-to-get-inspired-to-be-fit-right-now/)
+- [gym post captions](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 - [7 Unexpected Places to Sneak in a Workout ...](https://health.allwomenstalk.com/unexpected-places-to-sneak-in-a-workout/)
 

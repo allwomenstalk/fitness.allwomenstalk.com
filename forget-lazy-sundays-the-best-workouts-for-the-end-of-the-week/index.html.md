@@ -42,16 +42,16 @@ These’re 7 workout ideas for the end of the week. Do you workout on Sundays? W
 
 ## Related Posts
 
-- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
-- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
 - [simple trampoline](https://fitness.allwomenstalk.com/simple-safe-trampoline-workouts-that-anyone-do/)
 - [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
-- [desk bound job](https://fitness.allwomenstalk.com/ways-to-exercise-when-you-have-a-desk-bound-job/)
 - [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
-- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
 - [insecure about arms](https://beauty.allwomenstalk.com/heres-how-to-hide-your-flabby-arms-no-weight-loss-required/)
-- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
 - [jaw contouring makeup](https://beauty.allwomenstalk.com/exercises-and-contouring-tips-to-make-your-jawline-defined/)
+- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [desk bound job](https://fitness.allwomenstalk.com/ways-to-exercise-when-you-have-a-desk-bound-job/)
+- [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
+- [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
+- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
 - [7 Tips to Squeeze a Workout in ...](https://fitness.allwomenstalk.com/tips-to-squeeze-a-workout-in/)
 - [7 Fitness Tips for Great Weekend Workouts ...](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
 

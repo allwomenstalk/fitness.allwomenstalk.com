@@ -74,16 +74,16 @@ So get up off your couch and rehab easily as you get back to the game of fitness
 
 ## Related Posts
 
-- [Rules to Follow when You're Setting Fitness Goals ...](https://fitness.allwomenstalk.com/follow-these-rules-when-setting-fitness-goals/)
-- [17 Things You Need to Set up Your Home Gym ...](https://fitness.allwomenstalk.com/things-you-need-to-set-up-your-home-gym/)
-- [How to Use Music to Boost Your Workout ...](https://fitness.allwomenstalk.com/how-to-use-music-to-boost-your-workout/)
-- [5 min abs workout](https://fitness.allwomenstalk.com/workout-videos-that-are-only-5-minutes-long/)
-- [paris le stylo shadow avant azure](https://running.allwomenstalk.com/minute-strength-training-workout-for-runners/)
-- [These Mental Rules Will Help You Get in Shape Quic...](https://fitness.allwomenstalk.com/these-mental-rules-will-help-you-get-in-shape-quick/)
-- [The 5-Minute ⏲ Stretch Sequence You Need to Stay L...](https://fitness.allwomenstalk.com/5-minute-stretch-sequence-to-stay-long-and-lean/)
-- [7 Team Sports That'll Help You Stay in Shape ...](https://fitness.allwomenstalk.com/team-sports-thatll-help-you-stay-in-shape/)
 - [heart rate bra](https://apps.allwomenstalk.com/the-bra-thatll-give-you-a-better-workout/)
+- [These Mental Rules Will Help You Get in Shape Quic...](https://fitness.allwomenstalk.com/these-mental-rules-will-help-you-get-in-shape-quick/)
+- [7 Team Sports That'll Help You Stay in Shape ...](https://fitness.allwomenstalk.com/team-sports-thatll-help-you-stay-in-shape/)
+- [paris le stylo shadow avant azure](https://running.allwomenstalk.com/minute-strength-training-workout-for-runners/)
 - [10 minute workout for belly fat](https://fitness.allwomenstalk.com/this-minute-workout-will-tighten-and-tone-your-belly/)
+- [17 Things You Need to Set up Your Home Gym ...](https://fitness.allwomenstalk.com/things-you-need-to-set-up-your-home-gym/)
+- [5 min abs workout](https://fitness.allwomenstalk.com/workout-videos-that-are-only-5-minutes-long/)
+- [How to Use Music to Boost Your Workout ...](https://fitness.allwomenstalk.com/how-to-use-music-to-boost-your-workout/)
+- [Rules to Follow when You're Setting Fitness Goals ...](https://fitness.allwomenstalk.com/follow-these-rules-when-setting-fitness-goals/)
+- [The 5-Minute ⏲ Stretch Sequence You Need to Stay L...](https://fitness.allwomenstalk.com/5-minute-stretch-sequence-to-stay-long-and-lean/)
 - [7 Exercises You Can do Sitting down ...](https://weightloss.allwomenstalk.com/7-exercises-you-can-do-sitting-down/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 

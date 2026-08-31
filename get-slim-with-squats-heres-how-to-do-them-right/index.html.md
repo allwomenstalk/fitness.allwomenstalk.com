@@ -42,16 +42,16 @@ Now, with these tips to perfect your form, are you ready to squat yourself slim?
 
 ## Related Posts
 
-- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
-- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
-- [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
-- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
-- [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
-- [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
 - [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
+- [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
+- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
+- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
 - [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
 - [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
+- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
+- [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
 - [7 Quick Exercises to Get You in Shape ...](https://weightloss.allwomenstalk.com/quick-exercises-to-get-you-in-shape/)
 - [7 Easy Moves to Tone and Tighten Your Bum ...](https://weightloss.allwomenstalk.com/easy-moves-to-tone-and-tighten-your-bum/)
 

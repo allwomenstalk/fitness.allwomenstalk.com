@@ -42,16 +42,16 @@ Whenever you're in pain, you can find a way to cure it. Whether your arms, legs,
 
 ## Related Posts
 
-- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
-- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
-- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
-- [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
-- [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
-- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
-- [run without bra](https://fitness.allwomenstalk.com/dont-run-a-5k-without-these-things-in-your-bag/)
 - [best exercises for saddlebags](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-saddlebags/)
-- [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
 - [morning gym motivation](https://fitness.allwomenstalk.com/the-trick-to-getting-the-ultimate-morning-workout/)
+- [miss america diet](https://fitness.allwomenstalk.com/fitness-tips-from-miss-americas-trainer/)
+- [run without bra](https://fitness.allwomenstalk.com/dont-run-a-5k-without-these-things-in-your-bag/)
+- [how to smell good after sweating at school](https://beauty.allwomenstalk.com/how-to-freshen-up-after-gym-class/)
+- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
+- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
+- [lift yoga](https://fitness.allwomenstalk.com/yoga-poses-to-shape-and-lift-your-booty/)
+- [fueled by happy thoughts](https://fitness.allwomenstalk.com/positive-thoughts-to-fuel-your-workout/)
+- [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
 - [Exercise to Feel Great when Naked ...](https://allwomenstalk.com/exercise-to-feel-great-when-naked/)
 - [9 Surprising Benefits of Post Workout Selfies ...](https://fitness.allwomenstalk.com/surprising-benefits-of-post-workout-selfies/)
 

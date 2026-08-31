@@ -57,15 +57,15 @@ You don't have to pile on too many layers before you workout, because you're goi
 ## Related Posts
 
 - [trendy raincoats](https://fashion.allwomenstalk.com/best-and-most-fashionable-raincoats-for-trendsetting-women/)
-- [cute beanies](https://fashion.allwomenstalk.com/cute-beanies-for-when-its-colder/)
-- [forward layers haircut](https://hair.allwomenstalk.com/up-your-wow-factor-this-winter-with-the-seasons-sassiest-styles/)
 - [oversized sweater and tights](https://fashion.allwomenstalk.com/how-to-wear-an-oversized-sweater-during-winter/)
-- [cute color combos](https://fashion.allwomenstalk.com/the-cutest-color-combos-to-wear-in-winter/)
-- [spring fall coats](https://fashion.allwomenstalk.com/coats-for-a-perfect-transition-from-winter-to-spring/)
-- [how to wear a crop top over 50](https://fashion.allwomenstalk.com/how-to-wear-crop-tops-in-the-cold/)
-- [does a trench coat keep you warm](https://fashion.allwomenstalk.com/the-hottest-coat-trends-thatll-keep-you-warm/)
-- [really long sleeves](https://fashion.allwomenstalk.com/photos-that-prove-extra-long-sleeves-are-now-in-style/)
+- [cute beanies](https://fashion.allwomenstalk.com/cute-beanies-for-when-its-colder/)
 - [cozy blanket gif](https://lifestyle.allwomenstalk.com/warm-and-cozy-blankets/)
+- [does a trench coat keep you warm](https://fashion.allwomenstalk.com/the-hottest-coat-trends-thatll-keep-you-warm/)
+- [cute color combos](https://fashion.allwomenstalk.com/the-cutest-color-combos-to-wear-in-winter/)
+- [how to wear a crop top over 50](https://fashion.allwomenstalk.com/how-to-wear-crop-tops-in-the-cold/)
+- [forward layers haircut](https://hair.allwomenstalk.com/up-your-wow-factor-this-winter-with-the-seasons-sassiest-styles/)
+- [really long sleeves](https://fashion.allwomenstalk.com/photos-that-prove-extra-long-sleeves-are-now-in-style/)
+- [spring fall coats](https://fashion.allwomenstalk.com/coats-for-a-perfect-transition-from-winter-to-spring/)
 - [8 Sporty Chic Workout Clothes ...](https://fashion.allwomenstalk.com/sporty-chic-workout-clothes/)
 - [Winter Clothes - 20 Coolest Picks ...](https://allwomenstalk.com/winter-clothes-20-coolest-picks/)
 

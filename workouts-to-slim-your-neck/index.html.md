@@ -56,16 +56,16 @@ If you're building a comprehensive fitness routine, don't neglect your neck musc
 
 ## Related Posts
 
+- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
+- [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
+- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
 - [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
+- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
 - [challenging workouts](https://fitness.allwomenstalk.com/try-these-crazy-workout-challenges/)
 - [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
-- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
-- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
 - [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
-- [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
-- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
+- [couch workout](https://fitness.allwomenstalk.com/the-minute-sofa-workout-you-should-do-today/)
 - [200 calorie burn workout](https://fitness.allwomenstalk.com/try-this-200-calorie-blasting-workout-today/)
-- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
 - [12 Ways to Get Rid of Neck Fat Fast ...](https://allwomenstalk.com/12-ways-to-get-rid-of-neck-fat-fast/)
 - [7 Great Exercises to Tone Your Arms ...](https://allwomenstalk.com/7-great-exercises-to-tone-your-arms/)
 

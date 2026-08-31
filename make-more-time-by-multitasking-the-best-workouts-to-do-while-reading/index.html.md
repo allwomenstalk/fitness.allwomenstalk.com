@@ -44,16 +44,16 @@ These are 7 ways to read while getting your workout in. Do you read while workin
 
 ## Related Posts
 
-- [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
-- [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
 - [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
-- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
-- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
-- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
 - [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
+- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
+- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
+- [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
+- [how many calories do you burn in a barre class](https://fitness.allwomenstalk.com/still-not-losing-weight-you-simply-must-try-a-barre-workout/)
 - [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
 - [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
 - [9 Amazing Ways to Workout on the Go ...](https://weightloss.allwomenstalk.com/ways-to-workout-on-the-go/)
 - [8 Workouts to do While Watching TV ...](https://fitness.allwomenstalk.com/workouts-to-do-while-watching-tv/)
 

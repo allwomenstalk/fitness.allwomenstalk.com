@@ -42,16 +42,16 @@ If you’re looking to gain muscle, don’t just wing it and expect results. It 
 
 ## Related Posts
 
-- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
-- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
-- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [i'm too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
 - [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
 - [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
+- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
+- [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
 - [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
+- [i'm too lazy to exercise](https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/)
+- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
 - [Memorable Milestonesto Hit on Your Life-Changing F...](https://fitness.allwomenstalk.com/fabulous-fitness-milestones-to-mark-your-journey/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 

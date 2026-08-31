@@ -36,16 +36,16 @@ It is human nature to be more alert and enthusiastic when you are doing an activ
 
 ## Related Posts
 
-- [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
 - [gym tips](https://fitness.allwomenstalk.com/tips-for-gym-newbies-to-stay-on-track/)
-- [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
-- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
-- [benefits going gym](https://fitness.allwomenstalk.com/the-absolute-best-benefits-of-going-to-the-gym/)
-- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
 - [fabulous 50 posture](https://beauty.allwomenstalk.com/helpful-tips-to-improve-your-walking-for-a-more-toned-figure-and-better-posture/)
-- [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
+- [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
 - [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
+- [diy cute shirts](https://diy.allwomenstalk.com/diy-workout-shirts-for-cute-fitness/)
 - [reverse neck curl](https://fitness.allwomenstalk.com/the-reverse-curl-is-your-exercise-for-losing-your-pouch/)
+- [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
+- [benefits going gym](https://fitness.allwomenstalk.com/the-absolute-best-benefits-of-going-to-the-gym/)
+- [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
+- [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
 - [7 Helpful Tips for Getting into an Exercise Routin...](https://health.allwomenstalk.com/7-helpful-tips-for-getting-into-an-exercise-routine/)
 - [7 Ways to Get Back in the Gym ...](https://allwomenstalk.com/7-ways-to-get-back-in-the-gym/)
 

@@ -86,16 +86,16 @@ Feeling so inspired. Where do you find your fitness inspo?
 
 ## Related Posts
 
-- [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
-- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
-- [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
-- [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
 - [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
-- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
 - [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
-- [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
-- [Top I-don't-wanna-workout Excuses!](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
+- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
 - [Can Video Games Actually Help You Get Fit?](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
+- [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
+- [guys at gym](https://fitness.allwomenstalk.com/hot-guys-who-will-make-you-want-to-hit-the-gym/)
+- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
+- [Top I-don't-wanna-workout Excuses!](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
+- [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
+- [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
 - [Exhilarating 🤗 New Workouts for Girls Bored of Ro...](https://fitness.allwomenstalk.com/eclectic-workouts-for-fitness-variety/)
 - [Pumping Workout Videos for Girls Who Need Some Kic...](https://fitness.allwomenstalk.com/fitness-videos-to-inspire-you-and-pump-you-up/)
 

@@ -108,15 +108,15 @@ I mean, it's still pretty bad, don't get me wrong, but it's not terrible. Mostly
 
 ## Related Posts
 
-- [quickly calories](https://fitness.allwomenstalk.com/burn-calories-quickly-with-this-treadmill-interval-workout/)
-- [hardcore tatoo](https://beauty.allwomenstalk.com/these-tattoos-are-meant-for-hardcore-fitness-fanatics/)
+- [wiggles exercise](https://fitness.allwomenstalk.com/strengthen-your-core-with-the-wiggle-move/)
+- [popsugar 20 minute workout](https://fitness.allwomenstalk.com/the-20-minute-calorie-scorcher-for-beginners/)
+- [home yoga essentials](https://fitness.allwomenstalk.com/these-yoga-essentials-will-get-you-started-in-the-studio/)
 - [clockwork lunges](https://fitness.allwomenstalk.com/workout-moves-that-are-a-waste-of-time/)
-- [brunette gym selfie](https://fitness.allwomenstalk.com/ladies-try-these-tips-to-bump-up-the-burn/)
 - [does rocking back and forth burn calories](https://fitness.allwomenstalk.com/these-exercises-will-burn-more-calories-than-you-can-believe/)
 - [does dancing burn more calories than running](https://fitness.allwomenstalk.com/exercises-thatll-burn-more-fat-than-running-would/)
-- [home yoga essentials](https://fitness.allwomenstalk.com/these-yoga-essentials-will-get-you-started-in-the-studio/)
-- [popsugar 20 minute workout](https://fitness.allwomenstalk.com/the-20-minute-calorie-scorcher-for-beginners/)
-- [wiggles exercise](https://fitness.allwomenstalk.com/strengthen-your-core-with-the-wiggle-move/)
+- [hardcore tatoo](https://beauty.allwomenstalk.com/these-tattoos-are-meant-for-hardcore-fitness-fanatics/)
+- [brunette gym selfie](https://fitness.allwomenstalk.com/ladies-try-these-tips-to-bump-up-the-burn/)
+- [quickly calories](https://fitness.allwomenstalk.com/burn-calories-quickly-with-this-treadmill-interval-workout/)
 - [pilates addiction](https://fitness.allwomenstalk.com/follow-this-guide-to-become-an-exercise-addict/)
 - [7 Reasons to Change Gyms ...](https://allwomenstalk.com/7-reasons-to-change-gyms/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)

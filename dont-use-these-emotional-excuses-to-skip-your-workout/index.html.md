@@ -56,16 +56,16 @@ What emotional excuses are preventing you from exercising?
 
 ## Related Posts
 
-- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
-- [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
-- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
-- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
-- [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
+- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
 - [workout for long legs](https://fitness.allwomenstalk.com/the-most-intense-exercises-for-tall-girls/)
 - [is golf a workout](https://fitness.allwomenstalk.com/can-golf-give-you-a-good-workout/)
-- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
-- [kate hudson fit](https://fitness.allwomenstalk.com/how-to-get-in-shape-like-kate-hudson-did/)
+- [los angeles dance cardio classes](https://fitness.allwomenstalk.com/sign-up-for-these-dance-cardio-classes/)
+- [dog stretching in front of you](https://fitness.allwomenstalk.com/read-these-exercise-infographics-to-get-in-better-shape/)
 - [fitness excuses](https://fitness.allwomenstalk.com/most-common-excuses-people-make-to-not-work-out-do-you-make-them-too/)
+- [treadmill running video](https://fitness.allwomenstalk.com/the-best-videos-to-make-time-fly-on-the-treadmill/)
+- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
+- [does holding the handles on a treadmill](https://fitness.allwomenstalk.com/stop-making-these-amateur-treadmill-mistakes/)
+- [skinny personal trainer](https://fitness.allwomenstalk.com/ask-your-personal-trainer-these-questions-before-hiring-her/)
 - [Workout Tips: 7 Incredibly Bad and Feeble Excuses ...](https://health.allwomenstalk.com/workout-tips-incredibly-bad-and-feeble-excuses-to-skip-exercise/)
 - [7 Reasons to Kick up Your Workout Routine You Can'...](https://health.allwomenstalk.com/reasons-to-kick-up-your-workout-routine-you-cant-ignore/)
 

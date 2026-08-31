@@ -52,16 +52,16 @@ You've got this! Make it fun, and enjoy it! I promise you'll be flying through t
 
 ## Related Posts
 
+- [standing rows form](https://fitness.allwomenstalk.com/exercises-for-back-fat-2/)
+- [shapefast](https://fitness.allwomenstalk.com/how-to-work-out-at-home-without-equipment/)
+- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
+- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
+- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
 - [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
 - [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
-- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
-- [shapefast](https://fitness.allwomenstalk.com/how-to-work-out-at-home-without-equipment/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
-- [standing rows form](https://fitness.allwomenstalk.com/exercises-for-back-fat-2/)
-- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
 - [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
 - [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
-- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
 - [7 Reasons to Go for a Run ...](https://allwomenstalk.com/7-reasons-to-go-for-a-run/)
 - [8 Extremely Useful Tips for Beginning Runners ...](https://health.allwomenstalk.com/extremely-useful-tips-for-beginning-runners/)
 

@@ -54,16 +54,16 @@ What good are you going to be for your loved ones if you get obese with health p
 
 ## Related Posts
 
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
+- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
 - [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
+- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
 - [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
 - [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
-- [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
-- [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
 - [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
-- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [9 Techniques to Make Yourself Exercise ...](https://weightloss.allwomenstalk.com/9-techniques-to-make-yourself-exercise/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 

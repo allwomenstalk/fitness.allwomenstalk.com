@@ -43,15 +43,15 @@ Are you game to give barre a try? Which of these reasons are most compelling?
 ## Related Posts
 
 - [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
-- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
 - [exercises for parkour](https://fitness.allwomenstalk.com/wild-workouts-parkour-inspired-exercises-anyone-can-try/)
-- [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
-- [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
-- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
-- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
-- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
 - [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
+- [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
+- [stretch marks from squats](https://fitness.allwomenstalk.com/get-slim-with-squats-heres-how-to-do-them-right/)
+- [elliptical workout for abs](https://fitness.allwomenstalk.com/one-machine-one-perfect-body-awesome-elliptical-workouts-you-must-see/)
+- [piyo workout plan](https://fitness.allwomenstalk.com/toned-body-infographics-you-need-to-look-at-now/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
+- [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
 - [Pro Tips to Power up Your Workouts and Burn More C...](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)
 - [Try These Ideas the Next Time You Hit the Gym ...](https://fitness.allwomenstalk.com/things-women-should-do-in-a-gym-at-least-once/)
 

@@ -56,16 +56,16 @@ These are my favorite must-do fitness milestones which I am currently working th
 
 ## Related Posts
 
-- [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
-- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
+- [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
+- [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
 - [how to have thigh gap](https://fitness.allwomenstalk.com/exercises-for-a-lean-thigh-gap/)
 - [getting in better shape](https://fitness.allwomenstalk.com/amazing-things-that-happen-when-you-get-in-shape/)
-- [inspirational tank tops](https://fitness.allwomenstalk.com/inspirational-workout-tanks-to-get-you-motivated/)
-- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
-- [allintitle:ways fitness](https://fitness.allwomenstalk.com/ways-to-find-love-and-passion-for-fitness/)
-- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
-- [six pack feet](https://fitness.allwomenstalk.com/ways-to-work-out-your-abs-while-standing/)
 - [game changing fitness hacks](https://fitness.allwomenstalk.com/tips-on-how-to-gain-muscle/)
+- [side bra fat exercises](https://fitness.allwomenstalk.com/simple-exercises-to-eliminate-pesky-bra-fat/)
+- [awesomecouple](https://fitness.allwomenstalk.com/awesome-couple-sports-to-stay-healthy/)
+- [dorm room exercises](https://fitness.allwomenstalk.com/excellent-exercises-perfect-for-small-dorm-rooms/)
+- [gryotonic](https://fitness.allwomenstalk.com/reasons-the-gyrotonic-method-is-a-wonderful-way-to-get-in-shape/)
 - [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
 - [Life-Changing Fitness Accessories ⌚️ to Help You W...](https://fitness.allwomenstalk.com/fabulous-fitness-accessories-for-a-sexy-exercise-routine/)
 

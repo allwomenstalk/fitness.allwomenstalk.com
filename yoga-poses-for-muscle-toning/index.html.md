@@ -50,16 +50,16 @@ Are you feeling ready to work it like a yogi and get in your best shape?
 
 ## Related Posts
 
-- [november plank challenge](https://fitness.allwomenstalk.com/all-of-the-fitspo-you-need-for/)
-- [gorgeous teen body](https://fitness.allwomenstalk.com/olympic-level-workouts-to-put-your-body-to-the-test/)
-- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
-- [sexy body workouts](https://fitness.allwomenstalk.com/sexy-swan-ballerina-body-workouts/)
-- [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
-- [should i workout before a date](https://fitness.allwomenstalk.com/workouts-to-get-you-ready-for-your-next-date/)
-- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
-- [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
 - [partner pushups](https://fitness.allwomenstalk.com/strength-training-exercises-to-do-with-your-man/)
+- [jump rope workout video](https://fitness.allwomenstalk.com/jump-rope-workout-to-slim-down-and-shape-up/)
+- [but busters](https://fitness.allwomenstalk.com/new-butt-buster-workouts/)
 - [perfect skin and body therapy flat tummy](https://fitness.allwomenstalk.com/want-to-have-perfect-abs-flat-stomach-infographics-that-will-change-your-life/)
+- [gorgeous teen body](https://fitness.allwomenstalk.com/olympic-level-workouts-to-put-your-body-to-the-test/)
+- [should i workout before a date](https://fitness.allwomenstalk.com/workouts-to-get-you-ready-for-your-next-date/)
+- [sexy body workouts](https://fitness.allwomenstalk.com/sexy-swan-ballerina-body-workouts/)
+- [shredding exercises](https://fitness.allwomenstalk.com/sneaky-peeks-at-the-best-workouts-to-shred-and-sculpt/)
+- [november plank challenge](https://fitness.allwomenstalk.com/all-of-the-fitspo-you-need-for/)
+- [exercise fitness movies tv](https://fitness.allwomenstalk.com/have-fun-while-getting-fit-exercises-to-do-while-watching-tv/)
 - [7 Exercises to Tone Your Calf Muscles ...](https://health.allwomenstalk.com/7-exercises-to-tone-your-calf-muscles/)
 - [10 Tips for an Effective Work-out ...](https://allwomenstalk.com/10-tips-for-an-effective-work-out/)
 

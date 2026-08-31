@@ -58,15 +58,15 @@ Do you practice one kind of yoga or many? I like all these popular forms and pra
 
 ## Related Posts
 
-- [does yoga boost metabolism](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
-- [7 undeniable benefits of kettlebell training](https://fitness.allwomenstalk.com/invigorating-and-fun-work-out-options-if-you-dont-enjoy-running/)
-- [fun arm exercises](https://fitness.allwomenstalk.com/easy-and-fun-exercises-for-your-arms/)
-- [fun workout programs](https://fitness.allwomenstalk.com/fun-workout-programs-that-dont-feel-like-a-workout/)
-- [8 ways to exercise on a busy schedule](https://fitness.allwomenstalk.com/ways-to-keep-fit-with-a-busy-schedule/)
 - [benefits of online fitness training](https://fitness.allwomenstalk.com/reasons-to-take-an-online-fitness-class/)
-- [best exercises to tone arms](https://fitness.allwomenstalk.com/best-exercises-for-toned-arms-that-seriously-work/)
-- [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
 - [6 major muscle groups](https://fitness.allwomenstalk.com/major-muscle-groups-to-work-out-without-fail/)
+- [fun arm exercises](https://fitness.allwomenstalk.com/easy-and-fun-exercises-for-your-arms/)
+- [7 undeniable benefits of kettlebell training](https://fitness.allwomenstalk.com/invigorating-and-fun-work-out-options-if-you-dont-enjoy-running/)
+- [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
+- [fun workout programs](https://fitness.allwomenstalk.com/fun-workout-programs-that-dont-feel-like-a-workout/)
+- [does yoga boost metabolism](https://fitness.allwomenstalk.com/yoga-poses-to-boost-your-metabolism/)
+- [best exercises to tone arms](https://fitness.allwomenstalk.com/best-exercises-for-toned-arms-that-seriously-work/)
+- [8 ways to exercise on a busy schedule](https://fitness.allwomenstalk.com/ways-to-keep-fit-with-a-busy-schedule/)
 - [working out tips](https://fitness.allwomenstalk.com/tips-for-working-out-at-home-successfully/)
 - [3 Ways to Choose the Right Yoga Class ...](https://lifestyle.allwomenstalk.com/ways-to-choose-the-right-yoga-class/)
 - [8 Yoga Styles ...](https://allwomenstalk.com/8-yoga-styles/)

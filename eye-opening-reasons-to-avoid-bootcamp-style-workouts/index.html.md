@@ -42,16 +42,16 @@ If you love bootcamp workouts, do them and have fun. If you don't like feeling l
 
 ## Related Posts
 
-- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
-- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
-- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
-- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
-- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
-- [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
 - [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
+- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
+- [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
+- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
+- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
+- [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
+- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
+- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
 - [7 Reasons to Take an Online Fitness Class ...](https://fitness.allwomenstalk.com/reasons-to-take-an-online-fitness-class/)
 - [Practical Reasons to Skip the Gym and Find Another...](https://fitness.allwomenstalk.com/great-reasons-to-skip-the-gym-and-find-alternatives/)
 

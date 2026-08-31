@@ -206,16 +206,16 @@ Source: [Gabby Douglas' greatest 2012 Olympic](https://thegrio.com/2012/08/01/ga
 
 ## Related Posts
 
-- [elizabeth and james kohl's discontinued](https://fashion.allwomenstalk.com/the-best-celebrity-fashion-lines-out-there/)
-- [most prestigious job](https://money.allwomenstalk.com/these-are-the-hottest-careers-for-women-in-fashion-which-one-is-right-for-you/)
-- [calvin harris body](https://fashion.allwomenstalk.com/calvin-harris-and-taylor-swifts-most-stylish-moments/)
-- [khloe summer](https://celebs.allwomenstalk.com/get-some-style-inspiration-with-khloe-kardashians-best-looks-so-far/)
-- [afropunk makeup](https://beauty.allwomenstalk.com/the-best-in-hair-and-beauty-at-afropunk-fest-ny/)
-- [quotes about fashion models](https://fashion.allwomenstalk.com/inspiring-quotes-from-fashion-models/)
 - [chicheres](https://celebs.allwomenstalk.com/shes-so-chic-heres-rita-oras-lookbook/)
+- [elizabeth and james kohl's discontinued](https://fashion.allwomenstalk.com/the-best-celebrity-fashion-lines-out-there/)
 - [gigi fab](https://fashion.allwomenstalk.com/fabulous-looks-from-gigi-hadid/)
-- [nyfw models](https://fashion.allwomenstalk.com/the-most-breathtaking-nyfw-models/)
 - [kendall and kourtney height meme](https://fashion.allwomenstalk.com/the-kardashian-kids-cutest-outfits-yet/)
+- [nyfw models](https://fashion.allwomenstalk.com/the-most-breathtaking-nyfw-models/)
+- [khloe summer](https://celebs.allwomenstalk.com/get-some-style-inspiration-with-khloe-kardashians-best-looks-so-far/)
+- [calvin harris body](https://fashion.allwomenstalk.com/calvin-harris-and-taylor-swifts-most-stylish-moments/)
+- [most prestigious job](https://money.allwomenstalk.com/these-are-the-hottest-careers-for-women-in-fashion-which-one-is-right-for-you/)
+- [quotes about fashion models](https://fashion.allwomenstalk.com/inspiring-quotes-from-fashion-models/)
+- [afropunk makeup](https://beauty.allwomenstalk.com/the-best-in-hair-and-beauty-at-afropunk-fest-ny/)
 - [7 Reasons I Adore Lady Gaga ...](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
 - [Tyra Banks is a Spartan ...](https://allwomenstalk.com/tyra-banks-is-a-spartan/)
 

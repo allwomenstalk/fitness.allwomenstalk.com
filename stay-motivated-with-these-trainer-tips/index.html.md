@@ -42,16 +42,16 @@ So now that I have shared a few of my trainer tips to keep you motivated, make s
 
 ## Related Posts
 
-- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
-- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
-- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
-- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
-- [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
 - [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
-- [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
-- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
+- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
+- [lunch break workouts](https://fitness.allwomenstalk.com/tiny-workouts-to-fit-into-your-lunch-break/)
+- [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
 - [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
+- [gym workout dp](https://fitness.allwomenstalk.com/fab-reasons-to-work-out-today/)
+- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
+- [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
+- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [7 Ways to Motivate Yourself at the Gym ...](https://allwomenstalk.com/7-ways-to-motivate-yourself-at-the-gym/)
 

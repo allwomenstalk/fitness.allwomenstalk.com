@@ -168,16 +168,16 @@ Source: [Tone in Twenty Workouts](https://goo.gl/MKyxIw)
 
 ## Related Posts
 
-- [how to start biking for exercise](https://fitness.allwomenstalk.com/heres-how-to-get-started-with-a-biking-workout-routine/)
-- [calories in hula hoops](https://fitness.allwomenstalk.com/this-is-what-you-need-to-get-those-hot-curves/)
 - [how to strengthen posture muscles](https://fitness.allwomenstalk.com/core-strengthening-moves-for-perfect-posture/)
+- [calories in hula hoops](https://fitness.allwomenstalk.com/this-is-what-you-need-to-get-those-hot-curves/)
 - [misty copeland height weight](https://fitness.allwomenstalk.com/this-is-what-fit-bodies-look-like/)
+- [treadmill pyramid workout](https://fitness.allwomenstalk.com/its-only-half-an-hour-lets-check-out-these-30-minute-workouts/)
+- [workout burnout](https://fitness.allwomenstalk.com/helpful-tricks-to-avoid-workout-burnout/)
+- [how to start biking for exercise](https://fitness.allwomenstalk.com/heres-how-to-get-started-with-a-biking-workout-routine/)
 - [most unique gyms in the world](https://fitness.allwomenstalk.com/the-coolest-gyms-in-all-of-existence/)
 - [zombies run on treadmill](https://apps.allwomenstalk.com/exercise-apps-thatll-make-your-treadmill-time-fly-by/)
-- [workout burnout](https://fitness.allwomenstalk.com/helpful-tricks-to-avoid-workout-burnout/)
-- [treadmill pyramid workout](https://fitness.allwomenstalk.com/its-only-half-an-hour-lets-check-out-these-30-minute-workouts/)
-- [workouts to reduce neck fat](https://fitness.allwomenstalk.com/easy-exercises-to-get-rid-of-that-double-chin/)
 - [corkscrew curl exercise](https://fitness.allwomenstalk.com/exercises-gymnasts-do-thatll-make-you-more-flexible/)
+- [workouts to reduce neck fat](https://fitness.allwomenstalk.com/easy-exercises-to-get-rid-of-that-double-chin/)
 - [8 Best Workouts for Women in Their 20's ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-20s/)
 - [Find Your Perfect Workout with These Timeless Tips...](https://fitness.allwomenstalk.com/find-your-perfect-workout-with-these-timeless-tips/)
 

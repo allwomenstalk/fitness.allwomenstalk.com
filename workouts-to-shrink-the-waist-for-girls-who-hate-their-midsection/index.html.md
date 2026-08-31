@@ -42,16 +42,16 @@ With all the great ideas to help you slim down your midsection, be sure you eat 
 
 ## Related Posts
 
-- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
-- [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
-- [fat blasting workouts](https://fitness.allwomenstalk.com/sensational-fat-blasting-workouts-straight-from-boot-camp/)
-- [is inshape open on thanksgiving](https://weightloss.allwomenstalk.com/top-exercises-to-whip-you-back-in-shape-for-girls-who-put-on-weight-after-thanksgiving/)
-- [busy girl workouts](https://fitness.allwomenstalk.com/workouts-you-can-do-in-minute-for-super-busy-girls/)
 - [bails workout](https://fitness.allwomenstalk.com/ask-yourself-these-questions-before-you-bail-on-a-workout/)
-- [are ballerinas healthy](https://fitness.allwomenstalk.com/top-tips-from-professional-ballerinas-for-staying-in-shape/)
 - [Girl's Guide to a Perkier Butt and Tighter Thighs ...](https://fitness.allwomenstalk.com/girls-guide-to-a-perkier-butt-and-tighter-thighs-just-from-running/)
 - [gym fails videos](https://funny.allwomenstalk.com/hilarious-gym-fails-we-all-cant-help-but-laugh-at-and-maybe-relate-to/)
+- [fat blasting workouts](https://fitness.allwomenstalk.com/sensational-fat-blasting-workouts-straight-from-boot-camp/)
+- [are ballerinas healthy](https://fitness.allwomenstalk.com/top-tips-from-professional-ballerinas-for-staying-in-shape/)
+- [is inshape open on thanksgiving](https://weightloss.allwomenstalk.com/top-exercises-to-whip-you-back-in-shape-for-girls-who-put-on-weight-after-thanksgiving/)
 - [standing on head benefits](https://fitness.allwomenstalk.com/you-wont-believe-the-awesome-benefits-of-doing-a-headstand-everyday/)
+- [arielle loewen age](https://fitness.allwomenstalk.com/real-cross-fit-enthusiasts-you-should-be-amazed-by/)
+- [how to not embarrass yourself at the gym](https://fitness.allwomenstalk.com/awesome-tips-to-stop-your-gym-embarrassment-for-girls-wanting-to-get-fit/)
+- [busy girl workouts](https://fitness.allwomenstalk.com/workouts-you-can-do-in-minute-for-super-busy-girls/)
 - [7 Exercises Targeted at That Terrible Tummy ...](https://weightloss.allwomenstalk.com/7-exercises-targeted-at-that-terrible-tummy/)
 - [Top 10 Exercises for a Slim Waist ...](https://weightloss.allwomenstalk.com/top-exercises-for-a-slim-waist/)
 

@@ -32,16 +32,16 @@ Judged on her star power alone, Russian tennis expert Maria Sharapova isn't only
 
 ## Related Posts
 
+- [successful female comedians](https://movies.allwomenstalk.com/7-top-female-tv-comediens/)
 - [cartoon characters from nickelodeon](https://movies.allwomenstalk.com/best-nickelodeon-female-cartoon-characters/)
 - [all female characters in star wars](https://movies.allwomenstalk.com/the-new-order-of-women-in-star-wars/)
-- [famous female poems](https://music.allwomenstalk.com/female-artists-whose-music-is-pure-poetry/)
-- [ladies singers](https://music.allwomenstalk.com/empowering-female-singers/)
-- [successful female comedians](https://movies.allwomenstalk.com/7-top-female-tv-comediens/)
-- [best female villains in movies](https://movies.allwomenstalk.com/badass-female-movie-villians/)
-- [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
 - [top 5 disney princesses](https://inspiration.allwomenstalk.com/which-disney-princesses-make-the-best-role-models/)
-- [manic pixie dream girl by olivia](https://books.allwomenstalk.com/manic-pixie-dream-girl-by-olivia-gatwood/)
+- [famous female poems](https://music.allwomenstalk.com/female-artists-whose-music-is-pure-poetry/)
+- [best female villains in movies](https://movies.allwomenstalk.com/badass-female-movie-villians/)
 - [loyal women](https://lifestyle.allwomenstalk.com/women-who-do-nothing-for-the-cause-of-sisterhood/)
+- [manic pixie dream girl by olivia](https://books.allwomenstalk.com/manic-pixie-dream-girl-by-olivia-gatwood/)
+- [stranger things females](https://movies.allwomenstalk.com/amazing-women-in-stranger-things/)
+- [ladies singers](https://music.allwomenstalk.com/empowering-female-singers/)
 - [5 Great Women to Admire...](https://allwomenstalk.com/5-great-women-to-admire/)
 - [7 Best Celebrity Role Models ...](https://allwomenstalk.com/7-best-celebrity-role-models/)
 

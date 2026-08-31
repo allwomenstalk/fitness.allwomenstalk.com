@@ -56,16 +56,16 @@ These yoga quotes are just a few of the things I consider when stepping onto my 
 
 ## Related Posts
 
-- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
-- [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
-- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
-- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
 - [queen of quotes](https://inspiration.allwomenstalk.com/quotes-from-queen-elizabeth-that-will-make-you-think/)
-- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
+- [love quotes with fire](https://love.allwomenstalk.com/inspiring-quotes-about-relationships-to-spark-the-fire/)
 - [first you get the sugar quote](https://health.allwomenstalk.com/helpful-quotes-to-help-you-get-over-sugar-addiction/)
-- [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
+- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
+- [regret nothing in french](https://inspiration.allwomenstalk.com/cheery-quotes-to-live-by-for-the-new-year/)
+- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
 - [audrey hepburn kindness quotes](https://inspiration.allwomenstalk.com/classic-audrey-hepburn-quotes-that-will-motivate-you/)
+- [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
+- [glamour quotes](https://beauty.allwomenstalk.com/quotes-about-glamour-to-help-you-channel-your-inner-glamour-puss/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
 - [7 Daily Inspirations ...](https://allwomenstalk.com/7-daily-inspirations/)
 - [7 Top Yoga Blogs ...](https://allwomenstalk.com/top-yoga-blogs/)
 

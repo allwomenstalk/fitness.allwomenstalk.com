@@ -42,16 +42,16 @@ So fit girl, are you ready to have more fun and make the most out of each day. T
 
 ## Related Posts
 
-- [sexy guide](https://beauty.allwomenstalk.com/how-to-make-your-body-look-sexy-for-spring/)
-- [being newly single](https://love.allwomenstalk.com/things-every-newly-single-lady-should-do-asap/)
-- [is it weird to like a girls story](https://love.allwomenstalk.com/short-story-girls-who-like-girls/)
-- [what was the girl tired of hearing](https://lifestyle.allwomenstalk.com/women-are-sick-and-tired-of-hearing-these-things/)
 - [drunk story](https://lifestyle.allwomenstalk.com/a-short-story-about-girls-getting-drunk/)
+- [how to clean period stained underwear](https://lifestyle.allwomenstalk.com/every-woman-should-hear-about-these-period-stain-cleaning-hacks/)
+- [is it weird to like a girls story](https://love.allwomenstalk.com/short-story-girls-who-like-girls/)
+- [choices untameable](https://inspiration.allwomenstalk.com/how-to-be-fabulous-and-untamable/)
 - [oprah turn your wounds into wisdom](https://inspiration.allwomenstalk.com/how-to-turn-your-misery-into-money-according-to-oprah/)
 - [finding a fulfilling career](https://money.allwomenstalk.com/how-can-you-find-a-fulfilling-career/)
-- [how to clean period stained underwear](https://lifestyle.allwomenstalk.com/every-woman-should-hear-about-these-period-stain-cleaning-hacks/)
-- [choices untameable](https://inspiration.allwomenstalk.com/how-to-be-fabulous-and-untamable/)
+- [being newly single](https://love.allwomenstalk.com/things-every-newly-single-lady-should-do-asap/)
+- [sexy guide](https://beauty.allwomenstalk.com/how-to-make-your-body-look-sexy-for-spring/)
 - [17 Struggles of Awkward Women Trying to Be Sexy .....](https://love.allwomenstalk.com/struggles-awkward-women-have-when-trying-to-be-sexy/)
+- [what was the girl tired of hearing](https://lifestyle.allwomenstalk.com/women-are-sick-and-tired-of-hearing-these-things/)
 - [7 Unique Ways to Get Fit ...](https://weightloss.allwomenstalk.com/unique-ways-to-get-fit/)
 - [7 Amazing Ways to Exercise ...](https://weightloss.allwomenstalk.com/amazing-ways-to-exercise/)
 

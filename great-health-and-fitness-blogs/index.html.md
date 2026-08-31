@@ -70,12 +70,12 @@ With all the incredible health and fitness writers out there, I know that there 
 
 ## Related Posts
 
-- [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
-- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
-- [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
-- [tumblrs to follow](https://celebs.allwomenstalk.com/best-celebrity-tumblrs-you-should-follow/)
 - [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
+- [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
+- [tumblrs to follow](https://celebs.allwomenstalk.com/best-celebrity-tumblrs-you-should-follow/)
+- [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
 - [celebrities with lifestyle blogs](https://celebs.allwomenstalk.com/awesome-blogs-run-by-celebrities/)
+- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
 - [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
 - [how long to bake salmon](https://food.allwomenstalk.com/amazing-baking-blogs-for-baking-enthusiasts/)
 - [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)

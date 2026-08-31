@@ -42,16 +42,16 @@ Hope you find yourself eating healthier, exercising strong and feeling your best
 
 ## Related Posts
 
-- [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
-- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
-- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
 - [7 Ways to Improve Your Bone Health ...](https://health.allwomenstalk.com/ways-to-improve-your-bone-health/)
-- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
 - [sneak eating](https://diet.allwomenstalk.com/ways-to-sneak-in-healthy-eating/)
-- [Little Yet Smart Ways to Reduce Bloating after Eac...](https://diet.allwomenstalk.com/smart-little-ways-to-reduce-bloating-after-each-meal/)
-- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
 - [how to eat better in college](https://health.allwomenstalk.com/tips-for-eating-better-in-college/)
+- [7 Smart Ways to Maximize Your Calories Each and Ev...](https://diet.allwomenstalk.com/smart-ways-to-maximize-your-calories-each-and-every-day/)
+- [tips for eating dairy](https://diet.allwomenstalk.com/smart-tips-for-eating-dairy-if-youre-on-a-diet/)
+- [7 Tips for Success when Eating out on a Diet ...](https://diet.allwomenstalk.com/tips-for-success-when-eating-out-on-a-diet/)
 - [sushi bloating](https://food.allwomenstalk.com/ways-to-make-sushi-healthier/)
+- [Little Yet Smart Ways to Reduce Bloating after Eac...](https://diet.allwomenstalk.com/smart-little-ways-to-reduce-bloating-after-each-meal/)
+- [7 Simple Strategies to Make Changes to Your Diet ....](https://diet.allwomenstalk.com/simple-strategies-to-make-changes-to-your-diet/)
+- [7 Ways to Avoid Unwanted Calories Daily ...](https://diet.allwomenstalk.com/ways-to-avoid-unwanted-calories-daily/)
 - [8 Ways to Be Healthier ...](https://health.allwomenstalk.com/ways-to-be-healthier/)
 - [7 Tips on Eating Well ...](https://allwomenstalk.com/7-tips-on-eating-well/)
 

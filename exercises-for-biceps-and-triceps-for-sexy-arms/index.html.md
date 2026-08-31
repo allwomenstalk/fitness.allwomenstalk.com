@@ -42,16 +42,16 @@ Hope you are ready to work those arms into sexy, sculpted shape. You can see ama
 
 ## Related Posts
 
-- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
-- [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
-- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
-- [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
-- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
-- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
 - [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
-- [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
+- [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
 - [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
+- [exercises for fighting](https://fitness.allwomenstalk.com/exercises-to-fight-flab/)
+- [yoga myths](https://fitness.allwomenstalk.com/crazy-yoga-myths-debunked/)
+- [dance exercise videos youtube](https://fitness.allwomenstalk.com/dances-that-will-tone-your-body/)
+- [do you even bootcamp](https://fitness.allwomenstalk.com/eye-opening-reasons-to-avoid-bootcamp-style-workouts/)
 - [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
+- [medicine ball core exercises](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
+- [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
 - [7 Tips to Tone up Your Arms without Going to the G...](https://weightloss.allwomenstalk.com/7-tips-to-tone-up-your-arms-without-going-to-the-gym/)
 - [11 Effective Exercises to Slim Your Arms 🤳 into P...](https://weightloss.allwomenstalk.com/exercises-for-slimming-your-arms/)
 

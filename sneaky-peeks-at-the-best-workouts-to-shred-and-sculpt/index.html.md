@@ -50,16 +50,16 @@ With all these workouts to sculpt and shred, it is fair to say you can have it a
 
 ## Related Posts
 
-- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
-- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
-- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
-- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
-- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
-- [simple trampoline](https://fitness.allwomenstalk.com/simple-safe-trampoline-workouts-that-anyone-do/)
 - [thighgap](https://fitness.allwomenstalk.com/here-are-thigh-gap-inspos-that-will-make-you-want-to-do-lunges-on-the-spot/)
-- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [videos to watch while working out](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
 - [squeeze exercise](https://fitness.allwomenstalk.com/no-equipment-exercises-you-can-squeeze-into-any-schedule/)
 - [should i cancel my gym membership](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
+- [kama.kicks](https://fitness.allwomenstalk.com/fit-butt-infographics-that-will-transform-your-derriere-and-your-life/)
+- [fit body inspo](https://fitness.allwomenstalk.com/youll-hate-it-but-youve-got-to-see-these-fit-body-inspos/)
+- [simple trampoline](https://fitness.allwomenstalk.com/simple-safe-trampoline-workouts-that-anyone-do/)
+- [slimming leg](https://fitness.allwomenstalk.com/want-slimmer-thighs-check-out-these-amazing-infographics/)
+- [gym bag essentials for her](https://fitness.allwomenstalk.com/gym-bag-essentials-to-make-you-feel-fabulous-while-getting-fit/)
+- [working out on sunday](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [9 Fast Exercises to Lose Weight ...](https://weightloss.allwomenstalk.com/fast-exercises-to-lose-weight/)
 

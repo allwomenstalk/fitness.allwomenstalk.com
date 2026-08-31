@@ -110,16 +110,16 @@ I loathe the gym - when did they become such meat markets?! - but I still need t
 
 ## Related Posts
 
-- [30 day ab and arm challenge](https://fitness.allwomenstalk.com/try-the-day-abdominal-challenge/)
+- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
+- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
 - [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
 - [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
-- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
-- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [30 day ab and arm challenge](https://fitness.allwomenstalk.com/try-the-day-abdominal-challenge/)
 - [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
-- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
-- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
-- [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
 - [crossfit gif funny](https://funny.allwomenstalk.com/crossfit-fails-to-never-repeat/)
+- [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
+- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
+- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 - [10 Exercises You Can do at Home ...](https://fitene.com/10-exercises-you-can-do-at-home/)
 

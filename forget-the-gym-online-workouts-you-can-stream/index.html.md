@@ -42,16 +42,16 @@ If you don't have the time to drive to the gym or the confidence to workout arou
 
 ## Related Posts
 
-- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
 - [self-massage techniques for legs](https://fitness.allwomenstalk.com/self-massage-techniques-to-feel-better-after-a-workout/)
-- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
-- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
-- [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
-- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
-- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
-- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
 - [yoga for tight hips and hamstrings](https://fitness.allwomenstalk.com/yoga-poses-to-loosen-tight-hips-and-hamstrings/)
+- [what to wear for gym class](https://fitness.allwomenstalk.com/how-you-can-actually-get-fit-during-your-pe-class/)
+- [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
 - [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [tiptophealth](https://fitness.allwomenstalk.com/super-stretches-you-should-start-the-day-with/)
+- [victoria secret model legs](https://fitness.allwomenstalk.com/workouts-that-victoria-secret-models-swear-by/)
+- [what should i sculpt](https://fitness.allwomenstalk.com/thigh-sculpting-exercises-you-should-add-to-your-routine/)
+- [working out after binge eating](https://fitness.allwomenstalk.com/this-is-why-you-shouldnt-binge-exercise/)
+- [basic exercise moves](https://fitness.allwomenstalk.com/basic-moves-every-fitness-beginner-should-learn/)
 - [8 Ways to Get Fit without Going to the Gym ...](https://allwomenstalk.com/8-ways-to-get-fit-without-going-to-the-gym/)
 - [7 Ways to Work out While Traveling ...](https://allwomenstalk.com/7-ways-to-work-out-while-traveling/)
 

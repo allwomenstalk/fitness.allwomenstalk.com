@@ -42,15 +42,15 @@ Ready for the best looking body you've ever had? What other moves would you add 
 
 ## Related Posts
 
-- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
-- [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
-- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
-- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
 - [yoga core workouts](https://fitness.allwomenstalk.com/easy-yoga-core-workouts/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
+- [edm pilates](https://fitness.allwomenstalk.com/reasons-to-take-an-edm-fitness-class/)
 - [dance for exercise at home](https://fitness.allwomenstalk.com/dance-workouts-you-can-do-at-home/)
-- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
 - [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
+- [working out music](https://fitness.allwomenstalk.com/the-benefits-of-working-out-to-music/)
+- [what should be in gym bag?](https://fitness.allwomenstalk.com/essential-things-to-keep-in-your-gym-bag/)
+- [getting off the couch](https://fitness.allwomenstalk.com/tips-to-motivate-you-to-get-off-the-couch-to-exercise/)
+- [improve aerobic fitness](https://fitness.allwomenstalk.com/ways-to-improve-aerobic-fitness/)
 - [best fitness apps 2017](https://apps.allwomenstalk.com/best-android-fitness-apps-for/)
 - [13 Effective Exercises for Back Fat ...](https://weightloss.allwomenstalk.com/effective-exercises-for-back-fat/)
 - [7 Best Exercise for Curvy Girls ...](https://health.allwomenstalk.com/best-exercise-for-curvy-girls/)

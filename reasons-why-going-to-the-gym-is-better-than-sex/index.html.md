@@ -46,16 +46,16 @@ Well, that was ridiculous. All are true, but none really matter. Did it cheer yo
 
 ## Related Posts
 
-- [why are you interested in joining a panhellenic so...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-sorority/)
-- [happy hours life](https://lifestyle.allwomenstalk.com/reasons-why-happy-hour-is-essential-for-your-social-life/)
-- [reasons why i need a phone](https://lifestyle.allwomenstalk.com/advantages-of-not-owning-a-smartphone/)
-- [discount clothes store](https://money.allwomenstalk.com/reasons-to-shop-at-discount-stores/)
-- [loreal le shadow primped and previous](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-school/)
-- [should guys make the first move](https://love.allwomenstalk.com/reasons-to-make-the-first-move/)
-- [thankful smile](https://inspiration.allwomenstalk.com/reasons-to-smile-and-be-thankful/)
-- [how hard is it to learn russian](https://lifestyle.allwomenstalk.com/reasons-to-learn-russian/)
-- [travel when you are young](https://travel.allwomenstalk.com/reasons-to-travel-when-youre-young/)
 - [don't take chances meaning](https://inspiration.allwomenstalk.com/reasons-to-take-a-chance/)
+- [how hard is it to learn russian](https://lifestyle.allwomenstalk.com/reasons-to-learn-russian/)
+- [why are you interested in joining a panhellenic so...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-sorority/)
+- [loreal le shadow primped and previous](https://lifestyle.allwomenstalk.com/reasons-to-go-back-to-school/)
+- [travel when you are young](https://travel.allwomenstalk.com/reasons-to-travel-when-youre-young/)
+- [happy hours life](https://lifestyle.allwomenstalk.com/reasons-why-happy-hour-is-essential-for-your-social-life/)
+- [should guys make the first move](https://love.allwomenstalk.com/reasons-to-make-the-first-move/)
+- [discount clothes store](https://money.allwomenstalk.com/reasons-to-shop-at-discount-stores/)
+- [thankful smile](https://inspiration.allwomenstalk.com/reasons-to-smile-and-be-thankful/)
+- [reasons why i need a phone](https://lifestyle.allwomenstalk.com/advantages-of-not-owning-a-smartphone/)
 - [7 Reasons to Change Gyms ...](https://allwomenstalk.com/7-reasons-to-change-gyms/)
 - [8 Reasons to Start Working out ...](https://allwomenstalk.com/8-reasons-to-start-working-out/)
 

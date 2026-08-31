@@ -44,16 +44,16 @@ Yoga is such a positive activity that I never imagined I’d benefit from when I
 
 ## Related Posts
 
-- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
-- [is scouts good for my son](https://parenting.allwomenstalk.com/reasons-your-son-should-be-a-boy-scout/)
-- [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
-- [indulge in food](https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/)
-- [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
-- [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
-- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
-- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
-- [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
 - [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
+- [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
+- [buying local art](https://lifestyle.allwomenstalk.com/reasons-to-buy-from-local-artists/)
+- [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
+- [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
+- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
+- [indulge in food](https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/)
+- [should i babysit](https://parenting.allwomenstalk.com/reasons-you-should-babysit/)
+- [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
+- [is scouts good for my son](https://parenting.allwomenstalk.com/reasons-your-son-should-be-a-boy-scout/)
 - [10 Benefits of a Fitness Boot Camp ...](https://fitene.com/benefits-of-a-fitness-boot-camp/)
 - [7 Good Reasons to Change Careers ...](https://money.allwomenstalk.com/good-reasons-to-change-careers/)
 

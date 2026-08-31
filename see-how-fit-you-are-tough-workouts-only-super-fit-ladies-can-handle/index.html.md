@@ -130,16 +130,16 @@ Source: [20-Minute Cheesy Chicken Enchilada Soup](https://www.gimmesomeoven.com/
 
 ## Related Posts
 
-- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
-- [workouts to slim down](https://fitness.allwomenstalk.com/fun-water-workouts-thatll-help-you-slim-down-too/)
-- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
-- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
-- [swimming shake](https://fitness.allwomenstalk.com/ways-to-shake-up-your-swimming-routine/)
-- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
-- [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
-- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
-- [the work gym](https://fitness.allwomenstalk.com/gym-to-office-how-to-go-from-workout-to-work/)
 - [makes a racket](https://fitness.allwomenstalk.com/ready-to-make-a-racket-workouts-you-can-do-on-the-tennis-court/)
+- [workouts to slim down](https://fitness.allwomenstalk.com/fun-water-workouts-thatll-help-you-slim-down-too/)
+- [how to get in basketball shape](https://fitness.allwomenstalk.com/awesome-basketball-drills-to-help-you-get-in-shape/)
+- [swimming shake](https://fitness.allwomenstalk.com/ways-to-shake-up-your-swimming-routine/)
+- [the work gym](https://fitness.allwomenstalk.com/gym-to-office-how-to-go-from-workout-to-work/)
+- [yoga poses diagram](https://fitness.allwomenstalk.com/amazing-yoga-infographics-that-will-help-you-tone-your-body-instantly/)
+- [exercise classes reading](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
+- [leg curl fitball muscoli coinvolti](https://fitness.allwomenstalk.com/most-effective-workouts-to-tighten-your-derrier-in-a-week/)
+- [70 day workout challenge](https://fitness.allwomenstalk.com/how-to-get-a-hot-body-workout-challenges-thatll-get-you-in-the-best-shape-ever/)
+- [bikini workouts](https://fitness.allwomenstalk.com/summer-body-essential-exercises-every-girl-should-be-doing-already/)
 - [8 Best Workouts for Women in Their 20's ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-20s/)
 - [8 Best Workouts for Women in Their 30's ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-30s/)
 
