@@ -112,16 +112,16 @@ We've all gotten a little fashion inspo from our fave celebs on Instagram (Gigi 
 
 ## Related Posts
 
-- [huge sigh of relief gif](https://lifestyle.allwomenstalk.com/gifs-thatll-make-perfectionists-sigh-with-relief/)
-- [best photo print apps](https://apps.allwomenstalk.com/the-prettiest-ways-to-print-instagram-photos-from-your-phone/)
-- [girlie pictures](https://funny.allwomenstalk.com/these-hilarious-guys-recreated-girlie-instagram-pics-results-amazing/)
-- [Cuteness Overload! Check out These 23 Celebs and T...](https://celebs.allwomenstalk.com/cuteness-overload-check-out-these-celebs-and-their-pets-on-instagram/)
-- [ig selfie](https://apps.allwomenstalk.com/selfie-secrets-from-the-instagram-famous/)
 - [telephone torture](https://travel.allwomenstalk.com/torture-your-friends-with-instagram-pictures-of-your-holiday-in-the-uk/)
-- [jaw drop pic](https://lifestyle.allwomenstalk.com/play-doh-photos-thatll-make-your-jaw-drop/)
 - [what to wear in black and white photos](https://diy.allwomenstalk.com/how-to-take-artsy-black-and-white-photos/)
-- [instagram sensation meaning](https://apps.allwomenstalk.com/how-to-become-an-instagram-sensation/)
+- [best photo print apps](https://apps.allwomenstalk.com/the-prettiest-ways-to-print-instagram-photos-from-your-phone/)
 - [jobs at snapchat](https://lifestyle.allwomenstalk.com/paint-jobs-thatll-push-you-to-up-your-snapchat-game/)
+- [Cuteness Overload! Check out These 23 Celebs and T...](https://celebs.allwomenstalk.com/cuteness-overload-check-out-these-celebs-and-their-pets-on-instagram/)
+- [huge sigh of relief gif](https://lifestyle.allwomenstalk.com/gifs-thatll-make-perfectionists-sigh-with-relief/)
+- [instagram sensation meaning](https://apps.allwomenstalk.com/how-to-become-an-instagram-sensation/)
+- [girlie pictures](https://funny.allwomenstalk.com/these-hilarious-guys-recreated-girlie-instagram-pics-results-amazing/)
+- [ig selfie](https://apps.allwomenstalk.com/selfie-secrets-from-the-instagram-famous/)
+- [jaw drop pic](https://lifestyle.allwomenstalk.com/play-doh-photos-thatll-make-your-jaw-drop/)
 - [13 Fabulous Fitness Blogs to Follow Right Now ...](https://fitness.allwomenstalk.com/fabulous-fitness-blogs-to-follow-right-now/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 

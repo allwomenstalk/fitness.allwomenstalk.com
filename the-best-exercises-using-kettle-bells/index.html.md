@@ -42,16 +42,16 @@ I hope you have enjoyed these kettlebell exercises and the videos to help guide 
 
 ## Related Posts
 
-- [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
-- [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
-- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
-- [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
 - [billy blanks jr](https://fitness.allwomenstalk.com/benefits-of-tae-bo-that-may-turn-it-into-one-of-your-favorite-workouts/)
-- [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
-- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
-- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [a tight](https://fitness.allwomenstalk.com/best-exercises-for-a-tight-butt/)
+- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [step up risers](https://fitness.allwomenstalk.com/exercises-using-a-step-bench/)
+- [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
+- [are biceps or triceps more attractive](https://fitness.allwomenstalk.com/exercises-for-biceps-and-triceps-for-sexy-arms/)
+- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
+- [best exercise for upper thighs](https://fitness.allwomenstalk.com/exercises-for-toning-your-upper-thighs/)
+- [fall on your knees mac and cheese](https://fitness.allwomenstalk.com/ways-to-protect-your-knees-during-yoga/)
+- [tight upper body](https://fitness.allwomenstalk.com/exercises-to-tone-your-upper-body/)
 - [Try These Ideas the Next Time You Hit the Gym ...](https://fitness.allwomenstalk.com/things-women-should-do-in-a-gym-at-least-once/)
 - [Grab a Medicine Ball for These Fun Exercises ...](https://fitness.allwomenstalk.com/fun-exercises-using-a-medicine-ball/)
 

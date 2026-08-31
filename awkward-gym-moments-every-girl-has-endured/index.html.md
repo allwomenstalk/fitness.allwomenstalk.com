@@ -46,15 +46,15 @@ Sources:
 ## Related Posts
 
 - [single girl bucket list](https://lifestyle.allwomenstalk.com/a-realistic-bucket-list-for-college-girls/)
-- [what are a man's obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
+- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
 - [ladies big](https://lifestyle.allwomenstalk.com/problems-women-with-big-butts-have/)
 - [thankful woman](https://inspiration.allwomenstalk.com/things-every-woman-should-be-thankful-for/)
 - [why are girls always tired](https://funny.allwomenstalk.com/things-girls-who-are-always-tired-can-relate-to/)
+- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
+- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
+- [what are a man's obligations in life](https://inspiration.allwomenstalk.com/obligations-every-woman-has/)
 - [make period stop faster](https://health.allwomenstalk.com/how-to-make-your-period-end-faster/)
 - [things only girls know](https://hair.allwomenstalk.com/things-only-girls-with-curly-hair-can-understand/)
-- [what is the cleaning spell in harry potter](https://funny.allwomenstalk.com/modern-harry-potter-spells-that-would-make-a-womans-life-easier/)
-- [rest face](https://lifestyle.allwomenstalk.com/moments-every-woman-with-resting-bitch-face-has-experienced/)
-- [clever responses](https://funny.allwomenstalk.com/clever-responses-for-girls-who-dont-want-kids/)
 - [7 Extremely Common Fitness Mistakes Many Women Mak...](https://weightloss.allwomenstalk.com/fitness-mistakes-many-women-make/)
 - [7 Annoying Gym Habits and How to Avoid Them ...](https://fitene.com/annoying-gym-habits-and-how-to-avoid-them/)
 

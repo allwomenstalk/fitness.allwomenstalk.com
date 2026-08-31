@@ -216,16 +216,16 @@ Why should you work out today?
 
 ## Related Posts
 
-- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
-- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
-- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
-- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
-- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
-- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
-- [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
 - [crossfit tough as nails](https://fitness.allwomenstalk.com/tough-exercises-that-areguaranteed-to-give-you-results/)
-- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
+- [kegel torna video](https://fitness.allwomenstalk.com/exercises-to-keep-your-back-and-spine-healthy/)
 - [good side profiles](https://fitness.allwomenstalk.com/exercises-for-a-sexier-side-profile/)
+- [powerful yoga poses](https://fitness.allwomenstalk.com/incredible-poses-to-take-yoga-to-the-next-level/)
+- [get in shape girls](https://fitness.allwomenstalk.com/fun-ways-to-work-out-this-fall/)
+- [yoga tricks for two](https://fitness.allwomenstalk.com/couples-yoga-poses-for-exercising-together/)
+- [rockfitness](https://fitness.allwomenstalk.com/bad-at-exercising-heres-how-to-fix-it/)
+- [we must increase our bust the bigger the better](https://fitness.allwomenstalk.com/exercises-thatll-make-your-boobs-look-bigger/)
+- [gaiam tv fit & yoga free trial](https://fitness.allwomenstalk.com/forget-the-gym-online-workouts-you-can-stream/)
+- [workouts to lose love handles](https://fitness.allwomenstalk.com/get-rid-of-your-love-handles-with-these-workouts/)
 - [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
 - [9 Ways to Motivate Yourself to Work out Every Day ...](https://allwomenstalk.com/9-ways-to-motivate-yourself-to-work-out-every-day/)
 

@@ -45,15 +45,15 @@ These are just a few exercises I love to do to tone up my arms. What are your fa
 ## Related Posts
 
 - [how to push yourself to workout](https://fitness.allwomenstalk.com/reasons-to-push-yourself-in-your-workout/)
-- [when you don't feel like working out](https://fitness.allwomenstalk.com/reasons-to-work-out-even-when-you-dont-feel-like-it/)
-- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
-- [what to workout on saturday](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
 - [exercises that burn most calories](https://fitness.allwomenstalk.com/fun-workouts-that-burn-the-most-calories/)
+- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
 - [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
-- [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
+- [what to workout on saturday](https://fitness.allwomenstalk.com/fitness-tips-for-great-weekend-workouts/)
 - [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
-- [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
+- [when you don't feel like working out](https://fitness.allwomenstalk.com/reasons-to-work-out-even-when-you-dont-feel-like-it/)
+- [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
+- [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [7 Top Most Effective Exercises ...](https://allwomenstalk.com/top-7-most-effective-exercises/)
 

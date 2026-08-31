@@ -42,16 +42,16 @@ What other shoulder moves do you love? Try kettlebells – they’re great for y
 
 ## Related Posts
 
-- [freckled yogi](https://fitness.allwomenstalk.com/build-strong-lean-muscle-with-this-beginner-yoga-sequence/)
-- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
 - [hottest workout ever](https://fitness.allwomenstalk.com/ways-to-get-the-hottest-body-ever-for-women-who-only-have-15-minutes/)
+- [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
 - [dumbbell exercises for girls](https://fitness.allwomenstalk.com/super-powerful-dumbbell-exercises-for-girls-who-are-fit-and-ready-for-more/)
 - [work out for girls](https://fitness.allwomenstalk.com/cardio-for-girls-who-work-out-at-home/)
-- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
-- [fitfirl](https://fitness.allwomenstalk.com/all-fit-girls-know-these-tricks-of-the-trade/)
-- [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
 - [can you workout 7 days a week](https://fitness.allwomenstalk.com/this-is-what-happens-when-you-work-out-days-in-a-row/)
+- [freckled yogi](https://fitness.allwomenstalk.com/build-strong-lean-muscle-with-this-beginner-yoga-sequence/)
+- [most effective pilates moves](https://fitness.allwomenstalk.com/powerful-pilates-workout-moves-for-a-killer-body/)
 - [the sensational one](https://fitness.allwomenstalk.com/sensational-ways-to-get-a-beach-bod-in-just-2-weeks/)
+- [side stomach workout](https://fitness.allwomenstalk.com/challenging-obliques-exercises-for-girls-who-want-a-flat-stomach-asap/)
+- [how to get into sport](https://fitness.allwomenstalk.com/essential-info-for-girls-who-want-to-get-into-sport-and-get-super-fit/)
 - [Give the Girls a Lift with These 16 Exercises for ...](https://fitness.allwomenstalk.com/give-the-girls-a-lift-with-these-exercises-for-your-tatas/)
 - [High-Impact Workouts for Girls Who Want Amazing Re...](https://fitness.allwomenstalk.com/tough-workouts-thatll-give-you-amazing-results-within-weeks/)
 

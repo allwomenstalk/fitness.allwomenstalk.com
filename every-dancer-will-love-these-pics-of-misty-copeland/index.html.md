@@ -102,16 +102,16 @@ Now that you know about Misty Copeland, you can consider her an inspiration. Wha
 
 ## Related Posts
 
-- [why are athletes more attractive](https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/)
-- [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
-- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
-- [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
-- [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
-- [ballet portraits](https://fitness.allwomenstalk.com/ballet-portraits-that-anyone-whos-danced-can-appreciate/)
-- [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
-- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
-- [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
 - [black out arm tattoo](https://beauty.allwomenstalk.com/photos-that-all-blackout-tattoo-lovers-will-appreciate/)
+- [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
+- [ballet portraits](https://fitness.allwomenstalk.com/ballet-portraits-that-anyone-whos-danced-can-appreciate/)
+- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
+- [why are athletes more attractive](https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/)
+- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
+- [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
+- [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
+- [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
+- [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
 - [20 Hot Dita Von Teese Looks to Love ...](https://allwomenstalk.com/20-hot-dita-von-teese-looks-to-love/)
 - [Jennifer Aniston Legs and Other Pics to Add to You...](https://allwomenstalk.com/who-has-the-most-beautiful-legs/)
 

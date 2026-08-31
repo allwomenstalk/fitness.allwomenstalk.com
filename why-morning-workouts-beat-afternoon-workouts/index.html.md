@@ -56,16 +56,16 @@ These’re 7 awesome reasons to work out in the morning. Why do you love morning
 
 ## Related Posts
 
-- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
 - [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
+- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
 - [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
 - [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
+- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
 - [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
 - [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
-- [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
+- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
 - [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
-- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
-- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
 - [Forget Lazy Sundays - the Best Workouts for the En...](https://fitness.allwomenstalk.com/forget-lazy-sundays-the-best-workouts-for-the-end-of-the-week/)
 - [The Best Workouts to do While Reading ...](https://fitness.allwomenstalk.com/make-more-time-by-multitasking-the-best-workouts-to-do-while-reading/)
 

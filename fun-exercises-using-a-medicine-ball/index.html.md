@@ -42,16 +42,16 @@ So now that you have a few great medicine ball exercises to break up the workout
 
 ## Related Posts
 
-- [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
-- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
 - [cobra exercise](https://fitness.allwomenstalk.com/stretching-exercises-that-will-have-you-feeling-limber-and-pain-free/)
-- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
-- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
-- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
-- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
-- [how to get more gym members](https://fitness.allwomenstalk.com/ways-to-get-more-from-your-gym-membership/)
-- [best workout for quick results](https://fitness.allwomenstalk.com/simple-exercises-that-produce-great-results/)
 - [best sport training](https://fitness.allwomenstalk.com/sports-training-exercises-to-better-your-performance/)
+- [after burn effect exercise](https://fitness.allwomenstalk.com/exercises-to-get-the-afterburn-effect/)
+- [fayalwan gym](https://fitness.allwomenstalk.com/types-of-gym-you-might-choose-from/)
+- [cellulite workout plan](https://fitness.allwomenstalk.com/exercises-that-target-that-pesky-cellulite/)
+- [how to get more gym members](https://fitness.allwomenstalk.com/ways-to-get-more-from-your-gym-membership/)
+- [exercise to develop strength](https://fitness.allwomenstalk.com/exercises-to-develop-strength-without-packing-on-muscle/)
+- [best workout for quick results](https://fitness.allwomenstalk.com/simple-exercises-that-produce-great-results/)
+- [hourglass waist exercises](https://fitness.allwomenstalk.com/exercises-to-trim-your-waist-give-you-an-hourglass-figure/)
+- [don't starve trainer](https://fitness.allwomenstalk.com/myths-about-personal-trainers/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 - [7 Great Bosu Ball Exercises ...](https://allwomenstalk.com/7-great-bosu-ball-exercises/)
 

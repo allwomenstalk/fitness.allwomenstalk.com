@@ -42,16 +42,16 @@ With all these post workout stretches; are you ready to feel the difference in m
 
 ## Related Posts
 
-- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
-- [how's that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
-- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
-- [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
 - [body weight bootcamp](https://fitness.allwomenstalk.com/the-no-equipment-bodyweight-bootcamp-workout/)
-- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
+- [how's that working out for you gif](https://fitness.allwomenstalk.com/how-working-out-with-friends-can-make-you-get-fit-faster/)
 - [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
-- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
-- [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
+- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
+- [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
 - [smartbmicalculator](https://fitness.allwomenstalk.com/how-to-work-out-how-fit-you-are/)
+- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
+- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
+- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
+- [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
 - [The Truth about Stretching ...](https://allwomenstalk.com/the-truth-about-stretching/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 

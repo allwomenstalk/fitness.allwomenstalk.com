@@ -44,14 +44,14 @@ With these ultimate balance exercises there is no telling how much you will impr
 
 - [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
 - [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
-- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
 - [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
 - [ballerina thighs](https://fitness.allwomenstalk.com/insanely-effective-ballet-moves-for-girls-who-are-struggling-to-get-thinner-thighs/)
+- [do workout clothes make a difference](https://fitness.allwomenstalk.com/how-to-properly-care-for-your-workout-clothes-for-girls-needing-to-get-the-most-from-them/)
 - [work out pole](https://fitness.allwomenstalk.com/full-body-sculpting-pole-dancing-exercise-for-girls-who-feel-adventurous/)
 - [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
-- [do workout clothes make a difference](https://fitness.allwomenstalk.com/how-to-properly-care-for-your-workout-clothes-for-girls-needing-to-get-the-most-from-them/)
 - [pokemon fitness](https://fitness.allwomenstalk.com/pokemon-go-fitness-challenge-to-get-you-in-shape-in-days/)
 - [jiggle girl](https://fitness.allwomenstalk.com/7-days-of-arm-workoutsfor-girls-who-want-to-say-byeto-the-jiggle/)
+- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
 - [7 Core Strengthening Exercises ...](https://health.allwomenstalk.com/core-strengthening-exercises/)
 - [7 Best Exercises to Tone Your Legs ...](https://allwomenstalk.com/7-best-exercises-to-tone-your-legs/)
 

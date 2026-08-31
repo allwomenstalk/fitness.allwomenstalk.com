@@ -42,16 +42,16 @@ So as you approach your wedding day, make sure you eat healthy, exercise and kee
 
 ## Related Posts
 
-- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
-- [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
-- [marriage in december](https://wedding.allwomenstalk.com/reasons-to-have-an-indian-wedding-in-december/)
-- [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
-- [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
 - [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
+- [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
+- [marriage in december](https://wedding.allwomenstalk.com/reasons-to-have-an-indian-wedding-in-december/)
 - [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
+- [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
 - [superhero groomsmen](https://wedding.allwomenstalk.com/an-album-of-some-of-the-funniest-wedding-photos-in-the-world-wait-till-you-see-40/)
+- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
 - [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
 - [cringe proposal](https://funny.allwomenstalk.com/awful-marriage-proposals-that-will-make-you-cringe/)
+- [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
 - [How to Fake a Glamorous Wedding on a Shoestring Bu...](https://wedding.allwomenstalk.com/ways-to-fake-an-expensive-wedding/)
 - [How to Love Your Post-Baby Bod for Mommies Struggl...](https://parenting.allwomenstalk.com/how-to-love-your-post-baby-body/)
 

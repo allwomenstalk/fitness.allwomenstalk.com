@@ -54,16 +54,16 @@ How often do you look at your gym bag and think "oh no! I really don't want to g
 
 ## Related Posts
 
-- [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
-- [Can Video Games Actually Help You Get Fit?](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
-- [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
-- [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
-- [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
-- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
-- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
-- [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
 - [do headbands keep sweat out of eyes](https://lifestyle.allwomenstalk.com/best-headbands-to-workout-for-serious-sweating/)
+- [how to create a fitness brand](https://allwomenstalk.com/how-to-start-a-fitness-brand/)
+- [Can Video Games Actually Help You Get Fit?](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
+- [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)
+- [Use It or Lose It](https://allwomenstalk.com/use-it-or-lose-it/)
+- [Exercises to Fit Every Shape and Size ...](https://allwomenstalk.com/exercises-to-fit-every-shape-and-size/)
 - [Top I-don't-wanna-workout Excuses!](https://allwomenstalk.com/top-i-dont-wanna-workout-excuses/)
+- [Workin on My Fitness ...](https://allwomenstalk.com/workin-on-my-fitness/)
+- [selecting a fitness facility test](https://allwomenstalk.com/things-to-consider-selecting-fitness-facility/)
+- [Run Stairs to Build Strength and Endurance](https://allwomenstalk.com/run-stairs-to-build-strength-and-endurance/)
 - [10 Celebrity Bodies to Remember when Working out ....](https://allwomenstalk.com/10-celebrity-bodies-to-remember-when-working-out/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 

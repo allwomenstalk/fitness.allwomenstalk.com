@@ -26,16 +26,16 @@ Are you going to challenge yourself to complete these workouts?
 
 ## Related Posts
 
-- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
-- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
-- [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
-- [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
-- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
-- [crossfit gif funny](https://funny.allwomenstalk.com/crossfit-fails-to-never-repeat/)
-- [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
-- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
-- [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
 - [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [strong woman fitness quotes](https://inspiration.allwomenstalk.com/fitness-quotes-thatll-make-you-feel-strong/)
+- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
+- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
+- [polish women body type](https://fitness.allwomenstalk.com/how-lazy-ladies-can-get-the-perfect-body/)
+- [crossfit gif funny](https://funny.allwomenstalk.com/crossfit-fails-to-never-repeat/)
+- [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
+- [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
+- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
+- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
 - [31 Incredibly Genius Ways for Ladies to Get Killer...](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 - [15 Ways to Get Toned Abs That'll Make You Feel Sup...](https://fitene.com/ways-to-get-toned-abs-thatll-make-you-feel-super-sexy/)
 

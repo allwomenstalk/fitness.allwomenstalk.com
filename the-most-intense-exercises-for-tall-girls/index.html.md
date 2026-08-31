@@ -54,16 +54,16 @@ Now you have plenty of new ways to work out your long, beautiful legs. Which one
 
 ## Related Posts
 
-- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
-- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
-- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
-- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
-- [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
 - [squat types](https://fitness.allwomenstalk.com/different-squat-variations-for-a-killer-derrier/)
+- [stress burn calories](https://fitness.allwomenstalk.com/workouts-thatll-burn-stress-and-calories-at-the-same-time/)
+- [squad gym exercises](https://fitness.allwomenstalk.com/this-is-how-fit-girls-get-addicted-to-exercise/)
+- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
+- [killer core workout](https://fitness.allwomenstalk.com/tough-exercises-for-girls-who-want-defined-abs/)
 - [best way to burn calories on treadmill](https://fitness.allwomenstalk.com/how-to-burn-more-calories-on-the-treadmill-than-usual/)
 - [fit gurls](https://fitness.allwomenstalk.com/fit-girls-do-these-things-each-and-every-morning/)
-- [getting out of breath](https://fitness.allwomenstalk.com/exercises-for-women-who-get-out-of-breath-easily/)
+- [mega legs workout](https://fitness.allwomenstalk.com/workouts-thatll-burn-away-all-those-calories/)
 - [jillian michael](https://fitness.allwomenstalk.com/jillian-michaels-best-fitness-tips-of-all-time/)
+- [i worked out today](https://fitness.allwomenstalk.com/what-to-do-today-if-you-worked-out-hard-yesterday/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 - [8 Best Workouts for Women in Their 20's ...](https://allwomenstalk.com/8-best-workouts-for-women-in-their-20s/)
 

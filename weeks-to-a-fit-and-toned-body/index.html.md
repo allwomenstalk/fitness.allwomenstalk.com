@@ -42,16 +42,16 @@ Now that you have completed 7 weeks to a fit and toned body, are you feeling sat
 
 ## Related Posts
 
+- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
+- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
+- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
 - [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
 - [how to improve your workout](https://fitness.allwomenstalk.com/easy-ways-to-improve-your-workout/)
-- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
-- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
-- [rocking squats](https://fitness.allwomenstalk.com/leg-and-butt-exercises-that-will-have-you-rocking-your-summer-shorts/)
-- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
-- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
-- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
 - [just class fitness](https://fitness.allwomenstalk.com/reasons-to-take-a-fitness-class-rather-than-simply-going-to-the-gym/)
 - [reasons for working out](https://fitness.allwomenstalk.com/reasons-working-out-is-the-best-medicine/)
+- [the ladder exercise](https://fitness.allwomenstalk.com/awesome-reasons-to-try-the-lifetime-ladder-exercise/)
+- [exercises to do in a small space](https://fitness.allwomenstalk.com/super-ways-to-exercise-in-a-small-space/)
+- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Step Training Schedule to Shed Those Pounds ...](https://health.allwomenstalk.com/step-training-schedule-to-shed-those-pounds/)
 

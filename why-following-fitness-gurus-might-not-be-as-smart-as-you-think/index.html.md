@@ -37,15 +37,15 @@ Please don’t think this means you should not follow online fitness gurus. The 
 ## Related Posts
 
 - [If You're Having Trouble Losing Weight and Keeping...](https://allwomenstalk.com/if-youre-having-trouble-losing-weight-and-keeping-it-off-maybe-its-something-you-ate/)
-- [weight loss excuses](https://weightloss.allwomenstalk.com/excuses-you-hide-behind-when-youre-not-losing-weight-that-need-to-end/)
 - [how many carbs is too much](https://diet.allwomenstalk.com/signs-youre-eating-too-many-carbs/)
 - [fitspiration](https://fitness.allwomenstalk.com/how-to-use-fitspiration-the-wrong-way/)
-- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
+- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
+- [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
+- [weight loss excuses](https://weightloss.allwomenstalk.com/excuses-you-hide-behind-when-youre-not-losing-weight-that-need-to-end/)
 - [what not to eat before a workout](https://food.allwomenstalk.com/foods-you-should-never-eat-before-a-workout/)
 - [i stopped exercising and lost weight](https://weightloss.allwomenstalk.com/i-thought-i-wasnt-losing-weight-but-then-i-stopped-exercising/)
-- [common weight loss mistakes](https://weightloss.allwomenstalk.com/the-most-common-weight-loss-mistakes/)
 - [how do i stop thinking about food](https://weightloss.allwomenstalk.com/train-your-brain-to-stop-thinking-about-food-if-youre-on-the-road-to-losing-weight/)
-- [swimming to lose belly fat](https://weightloss.allwomenstalk.com/mistakes-you-make-when-trying-to-lose-belly-fat/)
+- [tami torossian](https://weightloss.allwomenstalk.com/why-you-should-count-nutrients-not-calories/)
 - [Why You Need to Focus on Being Strong Instead of S...](https://fitness.allwomenstalk.com/reasons-to-focus-on-being-strong-instead-of-skinny/)
 - [Why You Should Cancel Your Gym Membership Now ...](https://fitness.allwomenstalk.com/why-you-should-cancel-your-gym-membership-now/)
 

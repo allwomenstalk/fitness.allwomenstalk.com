@@ -104,16 +104,16 @@ A lazy personality and a hot body can coexist, I promise you! Try these tips and
 
 ## Related Posts
 
-- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
-- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
 - [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
-- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
-- [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
-- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
-- [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
 - [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
+- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
+- [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
+- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
 - [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
+- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
 - [crossfit gif funny](https://funny.allwomenstalk.com/crossfit-fails-to-never-repeat/)
+- [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
 - [31 Incredibly Genius Ways for Ladies to Get Killer...](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 - [Here Are the Hottest Ways for a Woman to Work out ...](https://fitness.allwomenstalk.com/here-are-the-hottest-ways-for-a-woman-to-work-out/)
 

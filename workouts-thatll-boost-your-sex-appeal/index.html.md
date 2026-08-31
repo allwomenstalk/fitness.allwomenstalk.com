@@ -50,16 +50,16 @@ Do you know how to do any of these activities?
 
 ## Related Posts
 
-- [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
-- [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
-- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
-- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
-- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
-- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
 - [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
 - [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
-- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
+- [best dance workout for weight loss](https://fitness.allwomenstalk.com/lose-weight-with-this-sexy-dance-workout/)
 - [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
+- [cardio girl](https://fitness.allwomenstalk.com/cardio-exercises-for-girls-who-hate-cardio/)
+- [exercises to do while at work](https://fitness.allwomenstalk.com/stretches-you-can-do-while-youre-at-work/)
+- [holiday weight loss challenge](https://weightloss.allwomenstalk.com/challenge-yourself-to-do-these-exercises-over-the-holiday-season/)
+- [half moon ball exercise](https://fitness.allwomenstalk.com/full-body-exercises-you-can-do-with-a-bosu-ball/)
+- [spin fit tips](https://fitness.allwomenstalk.com/tips-for-surviving-and-thriving-in-spin-class/)
 - [Exercise to Feel Great when Naked ...](https://allwomenstalk.com/exercise-to-feel-great-when-naked/)
 - [15 Ways to Get Toned Abs That'll Make You Feel Sup...](https://fitene.com/ways-to-get-toned-abs-thatll-make-you-feel-super-sexy/)
 

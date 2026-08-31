@@ -50,16 +50,16 @@ I hope if you have an addiction to exercise you realize that you’re only doing
 
 ## Related Posts
 
+- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
+- [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
+- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
 - [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
-- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
-- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
 - [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
-- [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
 - [good excersises](https://fitness.allwomenstalk.com/fab-ab-tips-so-you-can-achieve-a-flat-stomach/)
-- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
-- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
+- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
+- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [9 Techniques to Make Yourself Exercise ...](https://weightloss.allwomenstalk.com/9-techniques-to-make-yourself-exercise/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 

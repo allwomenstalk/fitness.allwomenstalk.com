@@ -44,14 +44,14 @@ What is your quick workout of choice? Will you do any of these? Let me know in t
 
 - [This is What Happens to Your Brain when You Exerci...](https://fitness.allwomenstalk.com/this-is-what-happens-to-your-brain-when-you-exercise/)
 - [7 Workouts That'll Give You the Wow Factor You've ...](https://fitness.allwomenstalk.com/workouts-thatll-give-you-the-wow-factor-youve-always-wanted/)
-- [7 Simple Yoga Session Tutorials You Can do Right a...](https://fitness.allwomenstalk.com/simple-yoga-session-tutorials-you-can-do-right-at-home/)
+- [Don't Be Lazy on Vaycay - 7 Workouts to do on Holi...](https://fitness.allwomenstalk.com/dont-be-lazy-on-vaycay-workouts-to-do-on-holiday/)
 - [boost endurance](https://fitness.allwomenstalk.com/boost-your-endurance-with-these-practices/)
 - [Everything You Need to Know about Pre and Post Wor...](https://fitness.allwomenstalk.com/everything-you-need-to-know-about-pre-and-post-workout-nutrition/)
-- [Don't Be Lazy on Vaycay - 7 Workouts to do on Holi...](https://fitness.allwomenstalk.com/dont-be-lazy-on-vaycay-workouts-to-do-on-holiday/)
+- [7 Simple Yoga Session Tutorials You Can do Right a...](https://fitness.allwomenstalk.com/simple-yoga-session-tutorials-you-can-do-right-at-home/)
 - [7 Exercises to Help Energize Your Runs ...](https://fitness.allwomenstalk.com/exercises-to-help-energize-your-runs/)
+- [Easy Ways to Exercise on a Long Flight ...](https://fitness.allwomenstalk.com/easy-ways-to-exercise-on-a-long-flight/)
 - [Drop Everything - Exercises Every Woman Should do ...](https://fitness.allwomenstalk.com/drop-everything-exercises-every-woman-should-do-right-now/)
 - [Master These 7 Fitness Moves for a Body You'll Be ...](https://fitness.allwomenstalk.com/master-these-fitness-moves-for-a-body-youll-be-proud-of/)
-- [Easy Ways to Exercise on a Long Flight ...](https://fitness.allwomenstalk.com/easy-ways-to-exercise-on-a-long-flight/)
 - [Work out While Watching These Motivational YouTube...](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
 - [How to Get the Most out of Every Workout ...](https://fitness.allwomenstalk.com/how-to-get-the-most-out-of-every-workout/)
 

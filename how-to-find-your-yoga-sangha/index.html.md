@@ -42,16 +42,16 @@ I like to think that a lot of this applies to life and your social circle as wel
 
 ## Related Posts
 
+- [benchwarmers eating sunscreen](https://inspiration.allwomenstalk.com/ways-to-bring-control-to-your-life/)
+- [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
 - [waste money gif](https://inspiration.allwomenstalk.com/life-choices-you-can-make-every-morning/)
 - [katie holmes upskirt](https://inspiration.allwomenstalk.com/what-you-should-do-differently-in/)
-- [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
 - [how to stop slacking off at work](https://inspiration.allwomenstalk.com/how-to-stop-slacking-and-get-out-of-your-slump/)
-- [benchwarmers eating sunscreen](https://inspiration.allwomenstalk.com/ways-to-bring-control-to-your-life/)
-- [loreal paris color riche le stylo smoky bottomless](https://inspiration.allwomenstalk.com/heres-how-to-be-more-spiritual-in-a-material-world/)
-- [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
 - [separate yourself from negativity](https://inspiration.allwomenstalk.com/how-to-separate-yourself-from-negativity/)
-- [bad life hacks](https://lifestyle.allwomenstalk.com/genius-life-hacks-every-human-should-know/)
+- [loreal paris color riche le stylo smoky bottomless](https://inspiration.allwomenstalk.com/heres-how-to-be-more-spiritual-in-a-material-world/)
+- [brain rewiring for health and happiness](https://inspiration.allwomenstalk.com/how-to-rewire-your-brain-to-be-happier/)
 - [weirdo love](https://inspiration.allwomenstalk.com/how-to-embrace-and-love-your-inner-weirdo/)
+- [opening a new chapter](https://inspiration.allwomenstalk.com/how-to-start-a-new-chapter-in-your-life/)
 - [10 Ways to Find More inside of You ...](https://lifestyle.allwomenstalk.com/ways-to-find-more-inside-of-you/)
 - [3 Ways to Choose the Right Yoga Class ...](https://lifestyle.allwomenstalk.com/ways-to-choose-the-right-yoga-class/)
 

@@ -18,16 +18,16 @@ Are you going to try this intense workout today?
 
 ## Related Posts
 
-- [towel stretch exercise](https://fitness.allwomenstalk.com/try-out-this-5-minute-towel-stretch-to-start-your-workout/)
-- [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
-- [five minute arms](https://fitness.allwomenstalk.com/try-this-5-minute-bodyweight-workout-for-your-arms/)
 - [exercise gif funny](https://fitness.allwomenstalk.com/how-to-survive-common-gym-struggles-weve-all-faced/)
+- [workout buddy quotes](https://fitness.allwomenstalk.com/the-benefits-of-having-a-workout-buddy-by-your-side/)
 - [100 percent cotton workout clothes](https://fashion.allwomenstalk.com/how-your-workout-clothes-are-ruining-your-workout/)
-- [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
-- [runner recovery tools](https://fitness.allwomenstalk.com/these-recovery-tools-will-make-exercise-even-easier/)
+- [five minute arms](https://fitness.allwomenstalk.com/try-this-5-minute-bodyweight-workout-for-your-arms/)
 - [how to stick to your new year's fitness resolution](https://fitness.allwomenstalk.com/how-to-stick-to-your-new-years-resolution-of-doing-more-exercise/)
-- [how to get in shape without a gym](https://fitness.allwomenstalk.com/the-best-ways-to-get-fit-without-a-gym/)
 - [lucy wyndham-read 30 day shred](https://fitness.allwomenstalk.com/challenge-yourself-to-do-these-badass-workouts-with-your-bestie/)
+- [how to get in shape without a gym](https://fitness.allwomenstalk.com/the-best-ways-to-get-fit-without-a-gym/)
+- [runner recovery tools](https://fitness.allwomenstalk.com/these-recovery-tools-will-make-exercise-even-easier/)
+- [fab 50 workouts](https://fitness.allwomenstalk.com/new-years-fitness-resolutions-that-can-help-you-become-fit-and-fab/)
+- [towel stretch exercise](https://fitness.allwomenstalk.com/try-out-this-5-minute-towel-stretch-to-start-your-workout/)
 - [7 Fun Fitness Workouts ...](https://weightloss.allwomenstalk.com/fun-fitness-workouts/)
 - [9 Amazing Ways to Workout on the Go ...](https://weightloss.allwomenstalk.com/ways-to-workout-on-the-go/)
 

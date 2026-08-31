@@ -86,16 +86,16 @@ Surfing is the quintessential summer sport. Sun, sand, and waves come together i
 
 ## Related Posts
 
-- [keep kids active](https://parenting.allwomenstalk.com/ways-to-keep-kids-active/)
-- [fun things to do in summer with friends](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-friends/)
-- [best beach america](https://travel.allwomenstalk.com/the-best-beach-towns-in-america-to-hit-up-this-summer-for-girls-looking-for-a-fun-time/)
-- [what are some childish things adults do](https://lifestyle.allwomenstalk.com/childish-things-all-adults-still-need-to-do-in-the-summer/)
-- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
-- [when summer ends book](https://lifestyle.allwomenstalk.com/things-to-do-before-summer-ends/)
-- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
 - [best summer jams](https://music.allwomenstalk.com/best-summer-songs/)
-- [beach reads 2018](https://books.allwomenstalk.com/best-beach-reads-for-summer/)
+- [fun things to do in summer with friends](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-friends/)
 - [unusual things to visit in london](https://travel.allwomenstalk.com/unusual-things-to-do-in-london/)
+- [beach reads 2018](https://books.allwomenstalk.com/best-beach-reads-for-summer/)
+- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
+- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
+- [what are some childish things adults do](https://lifestyle.allwomenstalk.com/childish-things-all-adults-still-need-to-do-in-the-summer/)
+- [when summer ends book](https://lifestyle.allwomenstalk.com/things-to-do-before-summer-ends/)
+- [best beach america](https://travel.allwomenstalk.com/the-best-beach-towns-in-america-to-hit-up-this-summer-for-girls-looking-for-a-fun-time/)
+- [keep kids active](https://parenting.allwomenstalk.com/ways-to-keep-kids-active/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [8 Fun Ways to Exercise This Summer ...](https://weightloss.allwomenstalk.com/fun-ways-to-exercise-this-summer/)
 

@@ -45,16 +45,16 @@ Do you own a treadmill? If you do, try this workout:
 
 ## Related Posts
 
-- [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
-- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
-- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
 - [does rocking back and forth burn calories](https://fitness.allwomenstalk.com/these-exercises-will-burn-more-calories-than-you-can-believe/)
-- [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
-- [10 reasons that motivates you to do exercise](https://fitness.allwomenstalk.com/how-to-motivate-yourself-to-work-out-early-in-the-morn/)
-- [does dancing burn more calories than running](https://fitness.allwomenstalk.com/exercises-thatll-burn-more-fat-than-running-would/)
 - [pilates addiction](https://fitness.allwomenstalk.com/follow-this-guide-to-become-an-exercise-addict/)
-- [Watch a Hot Aussie Give a 5 Minute ⏱ Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
+- [10 reasons that motivates you to do exercise](https://fitness.allwomenstalk.com/how-to-motivate-yourself-to-work-out-early-in-the-morn/)
 - [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
+- [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
+- [why is the 3 finger salute in hunger games bad](https://fitness.allwomenstalk.com/can-you-complete-this-hunger-games-fitness-challenge/)
+- [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
+- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
+- [does dancing burn more calories than running](https://fitness.allwomenstalk.com/exercises-thatll-burn-more-fat-than-running-would/)
+- [Watch a Hot Aussie Give a 5 Minute ⏱ Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
 - [7 Super Easy Ways to Burn More Calories ...](https://weightloss.allwomenstalk.com/super-easy-ways-to-burn-more-calories/)
 - [Pro Tips to Power up Your Workouts and Burn More C...](https://fitness.allwomenstalk.com/tips-to-power-up-your-workouts-and-burn-more-calories/)
 

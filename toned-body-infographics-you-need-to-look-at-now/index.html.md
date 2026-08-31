@@ -180,16 +180,16 @@ Source: [Infographic: Everything to Know About](https://www.self.com/story/infog
 
 ## Related Posts
 
-- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
-- [exercise bra fat](https://fitness.allwomenstalk.com/these-exercises-will-help-you-say-bye-bye-to-back-fat-bra-bulge/)
-- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
-- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
-- [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
-- [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
-- [arm flabs](https://fitness.allwomenstalk.com/you-can-forget-about-flab-with-these-arm-workouts/)
 - [development of abs](https://fitness.allwomenstalk.com/workouts-to-achieve-muscle-development-in-your-abs/)
-- [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
+- [feel the burn quotes](https://fitness.allwomenstalk.com/does-giggling-burn-calories-find-out-with-these-funny-workout-quotes/)
+- [foam roll workout](https://fitness.allwomenstalk.com/lets-roll-these-foam-roller-exercises-are-fun/)
 - [healthy gym lunches](https://food.allwomenstalk.com/lunches-to-launch-you-through-your-evening-workout/)
+- [arm flabs](https://fitness.allwomenstalk.com/you-can-forget-about-flab-with-these-arm-workouts/)
+- [exercises to do in small spaces](https://fitness.allwomenstalk.com/excellent-workouts-you-can-do-in-small-spaces/)
+- [eye of the tiger dance routine](https://fitness.allwomenstalk.com/eye-of-the-tiger-exercises-to-improve-your-agility/)
+- [bells exercise](https://fitness.allwomenstalk.com/kettlebell-exercises-to-tone-every-inch-of-your-bod/)
+- [call me maybe squat challenge](https://fitness.allwomenstalk.com/exercisesto-achieve-a-kick-ass-booty-in-bikini-bottoms/)
+- [exercise bra fat](https://fitness.allwomenstalk.com/these-exercises-will-help-you-say-bye-bye-to-back-fat-bra-bulge/)
 - [30 Motivational Health and Exercise Quotes ...](https://health.allwomenstalk.com/motivational-health-and-exercise-quotes/)
 - [28 Celebrity Beach Bodies ...](https://allwomenstalk.com/celebrity-beach-bodies-of/)
 

@@ -108,14 +108,14 @@ Have you tried any of these exercises, or have a favorite workout routine you do
 
 - [ways to make exercise fun](https://fitness.allwomenstalk.com/ways-to-make-exercise-fun/)
 - [5 minute high intensity workout](https://fitness.allwomenstalk.com/this-minute-workout-is-better-than-hiit/)
-- [pole dancing artinya](https://fitness.allwomenstalk.com/ways-to-train-like-a-dancer/)
 - [5 minute belly workout](https://fitness.allwomenstalk.com/5-minute-belly-blasting-walk/)
+- [pole dancing artinya](https://fitness.allwomenstalk.com/ways-to-train-like-a-dancer/)
 - [exercise hacks](https://fitness.allwomenstalk.com/exercise-hacks-for-better-workouts-2/)
-- [new exercise dvds](https://fitness.allwomenstalk.com/unique-workout-videos/)
-- [pug on treadmill](https://lifestyle.allwomenstalk.com/things-to-consider-before-treadmill-exercising-your-dog/)
-- [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
 - [zumba funny gif](https://fitness.allwomenstalk.com/the-best-workout-according-to-your-mood/)
+- [new exercise dvds](https://fitness.allwomenstalk.com/unique-workout-videos/)
+- [simple exercises to burn belly fat](https://weightloss.allwomenstalk.com/simple-exercises-to-burn-belly-fat/)
 - [worked out body](https://fitness.allwomenstalk.com/listen-to-your-body-to-find-the-perfect-time-to-work-out/)
+- [pug on treadmill](https://lifestyle.allwomenstalk.com/things-to-consider-before-treadmill-exercising-your-dog/)
 - [7 Secrets of Fit Women That You Should Know ...](https://weightloss.allwomenstalk.com/secrets-of-fit-women-that-you-should-know/)
 - [28 Running Infographics to Motivate You out the Do...](https://running.allwomenstalk.com/running-infographics-to-motivate-you-out-the-door/)
 

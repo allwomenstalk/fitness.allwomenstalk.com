@@ -42,16 +42,16 @@ Some of these fitness trends are not just new for 2014, they have been around fo
 
 ## Related Posts
 
-- [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
-- [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
+- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
 - [2014 hair trends](https://beauty.allwomenstalk.com/hot-hair-and-beauty-trends-for-spring-to-look-forward-to/)
 - [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
-- [fashion trend tracker](https://fashion.allwomenstalk.com/trend-tracker-fall-is-mad-for-plaid/)
-- [trend chic](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-chic-this-fall/)
-- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
-- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
+- [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
 - [riche le stylo eye primped and previous](https://hair.allwomenstalk.com/of-2014s-most-popular-hair-trends-for-the-fall/)
-- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
+- [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
+- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
+- [trend chic](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-chic-this-fall/)
+- [fashion trend tracker](https://fashion.allwomenstalk.com/trend-tracker-fall-is-mad-for-plaid/)
+- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
 - [7 Must- do Trends for 2012 ...](https://fashion.allwomenstalk.com/must-do-trends-for/)
 - [7 Food Trends That Will Feature Big in 2012 ...](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
 

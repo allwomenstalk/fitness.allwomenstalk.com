@@ -50,16 +50,16 @@ Jumping is a great way to burn calories and get your heart rate up. Invest in a 
 
 ## Related Posts
 
-- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
-- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
-- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
 - [20 lb kettlebell workout](https://fitness.allwomenstalk.com/the-best-exercises-using-kettle-bells/)
-- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
-- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
 - [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
-- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
+- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
 - [how many calories does inline skating burn](https://fitness.allwomenstalk.com/reasons-to-take-up-inline-skating/)
+- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
+- [switch hula hoop](https://fitness.allwomenstalk.com/fun-hula-hoop-exercises-to-get-those-hips-gyrating/)
 - [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
+- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
+- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
+- [cardio exercises to do at home](https://fitness.allwomenstalk.com/cardio-exercises-you-can-do-at-home/)
 - [9 Quick Exercises to Lose Weight ...](https://fitene.com/quick-exercises-to-lose-weight/)
 - [10 Best Weight Loss Exercises for Women ...](https://weightloss.allwomenstalk.com/top-weight-loss-exercises/)
 

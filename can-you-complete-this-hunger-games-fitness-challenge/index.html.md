@@ -68,16 +68,16 @@ There you have it! The Hunger Games Fitness Challenge. Do you volunteer as tribu
 
 ## Related Posts
 
-- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
-- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
 - [eres fitness](https://fitness.allwomenstalk.com/stay-fit-by-stealing-these-tricks-from-men/)
 - [10 reasons that motivates you to do exercise](https://fitness.allwomenstalk.com/how-to-motivate-yourself-to-work-out-early-in-the-morn/)
-- [Watch a Hot Aussie Give a 5 Minute ⏱ Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
 - [the fit girl 7](https://fitness.allwomenstalk.com/things-every-fit-girl-does-before-going-to-a-partyfitness/)
 - [getfit tv](https://fitness.allwomenstalk.com/get-fit-while-watching-tv-downton-abbey-edition/)
-- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
-- [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
 - [brazillian workout](https://fitness.allwomenstalk.com/boost-your-booty-with-this-minute-workout/)
+- [weight loss puffer](https://fitness.allwomenstalk.com/myths-you-shouldnt-keep-believing-about-exercise/)
+- [quick workouts for busy moms](https://fitness.allwomenstalk.com/a-quiet-at-home-workout-to-try-today/)
+- [Watch a Hot Aussie Give a 5 Minute ⏱ Workout ...](https://fitness.allwomenstalk.com/watch-a-hot-aussie-give-you-a-minute-body-workout/)
+- [17 Things You Can do to Make Working out Suck a Lo...](https://fitness.allwomenstalk.com/working-out-will-suck-less-if-you-do-these-things/)
+- [best exercise for waistline](https://fitness.allwomenstalk.com/exercises-thatll-give-you-a-sexy-waist/)
 - [Can Video Games Actually Help You Get Fit?](https://allwomenstalk.com/can-video-games-actually-help-you-get-fit/)
 - [Every Exercise You Need to  Get a Celebrity Physiq...](https://fitness.allwomenstalk.com/best-exercises-to-look-like-a-celebrity/)
 

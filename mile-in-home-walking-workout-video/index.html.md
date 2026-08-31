@@ -27,16 +27,16 @@ Good luck!
 
 ## Related Posts
 
-- [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
-- [couch gym](https://fitness.allwomenstalk.com/how-to-go-from-being-a-couch-potato-to-a-gym-bunny/)
 - [easy way to get six pack](https://fitness.allwomenstalk.com/easy-steps-to-a-six-pack/)
-- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
 - [how to get rid of a flabby belly](https://fitness.allwomenstalk.com/exercises-to-get-rid-of-a-flabby-tummy/)
-- [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
+- [couch gym](https://fitness.allwomenstalk.com/how-to-go-from-being-a-couch-potato-to-a-gym-bunny/)
 - [is it bad to shower after workout](https://fitness.allwomenstalk.com/why-you-should-always-shower-after-exercise/)
-- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
-- [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
 - [best workouts for losing body fat](https://weightloss.allwomenstalk.com/easy-workouts-to-lose-body-fat/)
+- [tally rye](https://fitness.allwomenstalk.com/free-workouts-you-can-do-at-home/)
+- [body weight moves you can do anywhere](https://fitness.allwomenstalk.com/bodyweight-exercises-you-can-do-anywhere-any-time/)
+- [exercises for shapely legs](https://fitness.allwomenstalk.com/top-exercises-for-shapely-legs/)
+- [gym workout chart](https://fitness.allwomenstalk.com/7-day-workout-plan-to-get-the-most-from-the-gym/)
+- [working out schedule](https://fitness.allwomenstalk.com/how-to-fit-working-out-in-a-busy-student-schedule/)
 - [2 Walking Workouts - Hate Running? Get Fit Walking...](https://allwomenstalk.com/hate-running-get-fit-with-walking-workout/)
 - [Walk Your Way to Health and Happiness for 30 Minut...](https://fitness.allwomenstalk.com/walk-your-way-to-health-and-happiness-for-minutes-5-times-a-week/)
 

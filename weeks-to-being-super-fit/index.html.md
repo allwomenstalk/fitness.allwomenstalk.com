@@ -42,16 +42,16 @@ Hope my seven week plan has helped you because with motivation, drive and a push
 
 ## Related Posts
 
-- [quickest way to abs](https://fitness.allwomenstalk.com/quick-ways-to-get-awesome-abs-for-a-vacation/)
-- [kayaking calorie burn](https://fitness.allwomenstalk.com/water-sports-that-will-blast-mega-calories/)
-- [what i know about fitness](https://fitness.allwomenstalk.com/things-you-need-to-know-about-fitness/)
-- [how to make time fly](https://health.allwomenstalk.com/ways-to-make-time-fly-while-exercising/)
-- [exercise machines](https://fitness.allwomenstalk.com/of-the-wackiest-exercise-machines-on-the-market/)
 - [waist cinching](https://fitness.allwomenstalk.com/ultimate-waist-cinching-tips-for-abs/)
+- [exercise machines](https://fitness.allwomenstalk.com/of-the-wackiest-exercise-machines-on-the-market/)
+- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
+- [how to make time fly](https://health.allwomenstalk.com/ways-to-make-time-fly-while-exercising/)
 - [roar fitness bibra lake](https://fitness.allwomenstalk.com/weeks-to-a-fit-and-toned-body/)
 - [just class fitness](https://fitness.allwomenstalk.com/reasons-to-take-a-fitness-class-rather-than-simply-going-to-the-gym/)
-- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
+- [quickest way to abs](https://fitness.allwomenstalk.com/quick-ways-to-get-awesome-abs-for-a-vacation/)
+- [kayaking calorie burn](https://fitness.allwomenstalk.com/water-sports-that-will-blast-mega-calories/)
 - [reasons for working out](https://fitness.allwomenstalk.com/reasons-working-out-is-the-best-medicine/)
+- [what i know about fitness](https://fitness.allwomenstalk.com/things-you-need-to-know-about-fitness/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [7 Step Training Schedule to Shed Those Pounds ...](https://health.allwomenstalk.com/step-training-schedule-to-shed-those-pounds/)
 

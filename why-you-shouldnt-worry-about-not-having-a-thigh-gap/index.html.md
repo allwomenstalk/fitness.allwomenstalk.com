@@ -22,16 +22,16 @@ There's also nothing you can do about the width of your hipbones. Don’t forget
 
 ## Related Posts
 
-- [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
-- [what is a passenger princess](https://parenting.allwomenstalk.com/reasons-why-princess-syndrome-is-unhealthy/)
-- [is it okay to be picky with friends](https://lifestyle.allwomenstalk.com/reasons-to-be-choosy-about-your-friends/)
-- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
-- [suicide is not an option](https://inspiration.allwomenstalk.com/why-suicide-is-not-an-option/)
 - [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
+- [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
+- [excuses guys make to not see you](https://love.allwomenstalk.com/excuses-guys-make-when-they-dont-want-to-commit/)
+- [is it okay to be picky with friends](https://lifestyle.allwomenstalk.com/reasons-to-be-choosy-about-your-friends/)
+- [what is a passenger princess](https://parenting.allwomenstalk.com/reasons-why-princess-syndrome-is-unhealthy/)
+- [you can't say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
+- [suicide is not an option](https://inspiration.allwomenstalk.com/why-suicide-is-not-an-option/)
 - [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
 - [warning signs of a mama's boy](https://love.allwomenstalk.com/reasons-never-to-date-a-mommas-boy/)
-- [excuses guys make to not see you](https://love.allwomenstalk.com/excuses-guys-make-when-they-dont-want-to-commit/)
-- [you can't say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
+- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
 - [10 Reasons Why You Are Not Losing Weight ...](https://weightloss.allwomenstalk.com/reasons-why-you-are-not-losing-weight/)
 - [7 Reasons to Love Your Body Just the Way It is ...](https://allwomenstalk.com/7-reasons-to-love-your-body-just-the-way-it-is/)
 

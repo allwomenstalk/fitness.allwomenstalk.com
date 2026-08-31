@@ -43,15 +43,15 @@ The benefits of yoga are immense. Why not add it your everyday then? These are j
 ## Related Posts
 
 - [people switch up](https://inspiration.allwomenstalk.com/ways-to-switch-up-your-life-when-youre-in-a-slump/)
-- [how to be more put together](https://lifestyle.allwomenstalk.com/quick-tips-for-being-more-put-together-on-a-daily-basis/)
 - [how to stick to commitments](https://inspiration.allwomenstalk.com/ways-to-stick-to-a-commitment-when-you-are-lacking-motivation/)
-- [how to write planner](https://lifestyle.allwomenstalk.com/things-to-write-in-your-planner-this-year/)
-- [toxic inspiration](https://inspiration.allwomenstalk.com/toxic-habits-that-kill-motivation-that-you-should-always-try-to-avoid/)
-- [love triangle prompts](https://books.allwomenstalk.com/writing-prompts-to-get-your-muse-moving/)
-- [quotes about leaving negativity behind](https://inspiration.allwomenstalk.com/ways-to-attract-positivity-and-leave-negativity-behind/)
-- [how to get rid of old habits](https://inspiration.allwomenstalk.com/inspirational-tips-to-help-you-get-rid-of-old-habits-for-good/)
 - [site:allwomenstalk.com](https://inspiration.allwomenstalk.com/ways-to-supercharge-your-life-in/)
+- [love triangle prompts](https://books.allwomenstalk.com/writing-prompts-to-get-your-muse-moving/)
+- [toxic inspiration](https://inspiration.allwomenstalk.com/toxic-habits-that-kill-motivation-that-you-should-always-try-to-avoid/)
+- [quotes about leaving negativity behind](https://inspiration.allwomenstalk.com/ways-to-attract-positivity-and-leave-negativity-behind/)
+- [how to write planner](https://lifestyle.allwomenstalk.com/things-to-write-in-your-planner-this-year/)
 - [what a great year](https://inspiration.allwomenstalk.com/ways-to-have-a-great-year/)
+- [how to be more put together](https://lifestyle.allwomenstalk.com/quick-tips-for-being-more-put-together-on-a-daily-basis/)
+- [how to get rid of old habits](https://inspiration.allwomenstalk.com/inspirational-tips-to-help-you-get-rid-of-old-habits-for-good/)
 - [7 Accessories for Doing Yoga ...](https://allwomenstalk.com/7-accessories-for-doing-yoga/)
 - [9 Yoga Tips for Beginners ...](https://allwomenstalk.com/yoga-tips-for-beginners/)
 

@@ -42,16 +42,16 @@ Hope you have enjoyed my list of fun workouts! So which one will you try? What i
 
 ## Related Posts
 
-- [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
-- [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [cheap womens gym wear](https://fitness.allwomenstalk.com/inexpensive-places-to-buy-workout-clothes/)
-- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
-- [treadmill challenges](https://weightloss.allwomenstalk.com/ways-to-challenge-your-body-while-on-the-treadmill/)
-- [rebecca louise 10 minute abs](https://fitness.allwomenstalk.com/xhit-workouts-worth-trying-out/)
+- [assisted quad stretch](https://fitness.allwomenstalk.com/at-home-exercises-for-a-killer-body/)
 - [7rewards](https://fitness.allwomenstalk.com/rewards-of-exercising-regularly/)
+- [treadmill challenges](https://weightloss.allwomenstalk.com/ways-to-challenge-your-body-while-on-the-treadmill/)
+- [yoga typea](https://fitness.allwomenstalk.com/weird-types-of-yoga-you-might-not-be-aware-of/)
 - [training for fitness competition](https://fitness.allwomenstalk.com/ways-to-prepare-for-a-fitness-competition/)
-- [7 undeniable benefits of kettlebell training](https://fitness.allwomenstalk.com/of-the-most-effective-exercises-to-transform-your-body/)
 - [when you don't feel like working out](https://fitness.allwomenstalk.com/reasons-to-work-out-even-when-you-dont-feel-like-it/)
+- [7 undeniable benefits of kettlebell training](https://fitness.allwomenstalk.com/of-the-most-effective-exercises-to-transform-your-body/)
+- [rebecca louise 10 minute abs](https://fitness.allwomenstalk.com/xhit-workouts-worth-trying-out/)
+- [tighten core exercises](https://fitness.allwomenstalk.com/tips-to-tone-and-tighten-your-core/)
 - [7 Video Games That Will Burn Calories ...](https://allwomenstalk.com/7-video-games-that-will-burn-calories/)
 - [7 Most Effective Exercises for Losing Weight ...](https://allwomenstalk.com/7-most-effective-exercises-for-losing-weight/)
 

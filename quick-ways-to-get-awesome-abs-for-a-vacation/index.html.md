@@ -42,16 +42,16 @@ So now that you have all these tips to help you get awesome abs for vacation, te
 
 ## Related Posts
 
+- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
+- [exercise machines](https://fitness.allwomenstalk.com/of-the-wackiest-exercise-machines-on-the-market/)
+- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
+- [how to make time fly](https://health.allwomenstalk.com/ways-to-make-time-fly-while-exercising/)
+- [just class fitness](https://fitness.allwomenstalk.com/reasons-to-take-a-fitness-class-rather-than-simply-going-to-the-gym/)
+- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
+- [reasons for working out](https://fitness.allwomenstalk.com/reasons-working-out-is-the-best-medicine/)
 - [roar fitness bibra lake](https://fitness.allwomenstalk.com/weeks-to-a-fit-and-toned-body/)
 - [waist cinching](https://fitness.allwomenstalk.com/ultimate-waist-cinching-tips-for-abs/)
-- [how to make time fly](https://health.allwomenstalk.com/ways-to-make-time-fly-while-exercising/)
-- [reasons for working out](https://fitness.allwomenstalk.com/reasons-working-out-is-the-best-medicine/)
-- [exercise machines](https://fitness.allwomenstalk.com/of-the-wackiest-exercise-machines-on-the-market/)
-- [inner thigh toning](https://fitness.allwomenstalk.com/at-home-exercises-to-tone-your-inner-thighs/)
 - [things have a way of working out](https://fitness.allwomenstalk.com/things-that-can-get-in-the-way-of-your-workout-and-how-to-conquer-them/)
-- [just class fitness](https://fitness.allwomenstalk.com/reasons-to-take-a-fitness-class-rather-than-simply-going-to-the-gym/)
-- [fitness date](https://fitness.allwomenstalk.com/great-workouts-to-do-with-a-date/)
-- [are you at the gym](https://fitness.allwomenstalk.com/essential-questions-to-ask-before-joining-a-gym/)
 - [7 Ways to Get in Shape for Summer ...](https://weightloss.allwomenstalk.com/ways-to-get-in-shape-for-summer/)
 - [31 Incredibly Genius Ways for Ladies to Get Killer...](https://weightloss.allwomenstalk.com/ways-to-get-great-abs-if-you-are-a-girl/)
 

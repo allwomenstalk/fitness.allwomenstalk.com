@@ -44,16 +44,16 @@ Yoga is one of my favorite ways to exercise and relax. I love that I get to stre
 
 ## Related Posts
 
-- [what is the best thing about being a teenager](https://teen.allwomenstalk.com/best-things-about-being-a-teenager-in-the-world-today/)
-- [passion is more important than wealth](https://inspiration.allwomenstalk.com/reasons-why-following-your-passion-is-more-important-than-money/)
 - [benefits of the library](https://books.allwomenstalk.com/benefits-of-going-to-your-local-libray/)
 - [ted ed why you should read](https://lifestyle.allwomenstalk.com/reasons-why-you-should-watch-ted-talks-more-often/)
-- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
+- [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
+- [what is the best thing about being a teenager](https://teen.allwomenstalk.com/best-things-about-being-a-teenager-in-the-world-today/)
+- [passion is more important than wealth](https://inspiration.allwomenstalk.com/reasons-why-following-your-passion-is-more-important-than-money/)
+- [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
 - [give two reasons why yoga instructors should becom...](https://fitness.allwomenstalk.com/benefits-of-becoming-a-certified-yoga-teacher/)
 - [indulge in food](https://diet.allwomenstalk.com/reasons-why-its-ok-to-indulge-now-and-then/)
-- [history of taking husband's last name](https://love.allwomenstalk.com/reasons-to-take-your-husbands-last-name/)
+- [i will light candles this christmas](https://lifestyle.allwomenstalk.com/reasons-to-light-candles-more-often/)
 - [reasons to do pilates](https://fitness.allwomenstalk.com/convincing-reasons-to-do-pilates/)
-- [moving accross country](https://lifestyle.allwomenstalk.com/wonderful-reasons-to-move-across-the-country/)
 - [7 Reasons to Say "Yes" to Yoga ...](https://allwomenstalk.com/7-reasons-to-say-yes-to-yoga/)
 - [7 Benefits of Pilates ...](https://allwomenstalk.com/7-benefits-of-pilates/)
 

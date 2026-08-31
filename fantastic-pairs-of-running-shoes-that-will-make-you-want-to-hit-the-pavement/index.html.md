@@ -152,16 +152,16 @@ There are so many running shoes out there! How do you pick the ones you love bes
 
 ## Related Posts
 
-- [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
-- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
-- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
 - [cowboy boots with angel wings](https://fashion.allwomenstalk.com/pairs-of-cowboy-boots-to-wake-up-your-country-side/)
-- [new birkenstock trend](https://shoes.allwomenstalk.com/reasons-why-the-birkenstock-trend-is-awesome/)
-- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
-- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
-- [wear heels without pain](https://fashion.allwomenstalk.com/the-secret-to-wearing-high-heels-without-any-pain/)
-- [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
+- [aldocom](https://fashion.allwomenstalk.com/affordable-accessories-from-aldo-com/)
+- [what to wear with floral print shoes](https://shoes.allwomenstalk.com/floral-high-heels-to-wear-to-your-next-event/)
 - [baby boy peep toe boots](https://parenting.allwomenstalk.com/pairs-of-baby-booties-to-keep-tiny-feet-warm/)
+- [adorable shoes](https://parenting.allwomenstalk.com/adorable-pairs-of-baby-shoes-youll-want-for-your-little-one/)
+- [vegan chic shoes](https://shoes.allwomenstalk.com/vegan-footwear-brands-youll-love/)
+- [darcy booties](https://shoes.allwomenstalk.com/fifteen-shades-of-beige-the-best-brown-boots-this-fall/)
+- [new birkenstock trend](https://shoes.allwomenstalk.com/reasons-why-the-birkenstock-trend-is-awesome/)
+- [wear heels without pain](https://fashion.allwomenstalk.com/the-secret-to-wearing-high-heels-without-any-pain/)
+- [boots street style](https://streetstyle.allwomenstalk.com/street-style-outfits-with-boots-for-the-fall/)
 - [10 Tips on Buying Fabulous Shoes ...](https://allwomenstalk.com/10-tips-on-buying-fabulous-shoes/)
 - [7 Awesome Shoes to Step You into Spring ...](https://allwomenstalk.com/7-awesome-shoes-to-step-you-into-spring/)
 

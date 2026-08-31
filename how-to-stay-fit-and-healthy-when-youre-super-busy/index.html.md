@@ -120,16 +120,16 @@ Turn off the phone, get into a warm bath, maybe get a massage, and just chill ou
 
 ## Related Posts
 
-- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
-- [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
-- [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
-- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
-- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
-- [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
-- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
-- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
+- [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
+- [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
+- [jobs for two days a week](https://fitness.allwomenstalk.com/ways-to-get-paid-to-work-out/)
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
+- [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
+- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
+- [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
+- [energizing workout](https://fitness.allwomenstalk.com/morning-workouts-to-energize-your-day/)
 - [10 Cheap Ways to Stay Fit ...](https://health.allwomenstalk.com/10-cheap-ways-to-stay-fit/)
 - [7 Ways to Exercise during a Busy Day ...](https://health.allwomenstalk.com/ways-to-exercise-during-a-busy-day/)
 

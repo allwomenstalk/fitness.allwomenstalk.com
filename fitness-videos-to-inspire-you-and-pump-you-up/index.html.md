@@ -42,16 +42,16 @@ With all this fit inspiration, get up, get going and get your fit on starting to
 
 ## Related Posts
 
-- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
-- [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
-- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
-- [belly blast exercises](https://fitness.allwomenstalk.com/combat-belly-fat-with-these-exercises/)
-- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
-- [websites for exercise](https://fitness.allwomenstalk.com/websites-thatll-make-you-want-to-go-to-the-gym-asap/)
 - [flat tummy walk treadmill](https://fitness.allwomenstalk.com/i-wanna-walk-and-these-walking-workouts-will-make-you-wanna-walk-too/)
-- [best workouts for stress relief](https://fitness.allwomenstalk.com/workouts-thatll-relax-your-mind-and-body/)
+- [websites for exercise](https://fitness.allwomenstalk.com/websites-thatll-make-you-want-to-go-to-the-gym-asap/)
 - [kayla itsines insta](https://fitness.allwomenstalk.com/motivational-instagram-accounts-that-will-push-you-to-exercise/)
+- [distance swim sets](https://fitness.allwomenstalk.com/water-workouts-to-buff-you-up/)
+- [little girl bikini belly](https://fitness.allwomenstalk.com/these-exercises-will-give-you-a-bikini-ready-belly/)
+- [womens fitness motivation](https://fitness.allwomenstalk.com/stay-motivated-with-these-trainer-tips/)
 - [activities that burn 100 calories](https://fitness.allwomenstalk.com/ways-to-burn-100-calories/)
+- [best workouts for stress relief](https://fitness.allwomenstalk.com/workouts-thatll-relax-your-mind-and-body/)
+- [200 jumping jacks](https://fitness.allwomenstalk.com/exercises-every-woman-should-swear-by/)
+- [belly blast exercises](https://fitness.allwomenstalk.com/combat-belly-fat-with-these-exercises/)
 - [Work out While Watching These Motivational YouTube...](https://fitness.allwomenstalk.com/work-out-while-watching-these-motivational-youtube-channels/)
 - [See How Fit You Are: 20 Tough Workouts Only Super ...](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
 

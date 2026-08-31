@@ -56,16 +56,16 @@ Now you know seven great yoga poses that are simple enough to do every day. Itâ€
 
 ## Related Posts
 
-- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
-- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
-- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
 - [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
-- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
-- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
-- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
-- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [oblivion pre workout](https://fitness.allwomenstalk.com/fat-burning-exercises-to-blast-those-bulges-into-oblivion/)
+- [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
+- [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
+- [how to make your man obsessed with you](https://fitness.allwomenstalk.com/things-you-can-do-if-your-boyfriend-is-obsessed-with-working-out/)
+- [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
+- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
+- [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
+- [get ready for work](https://fitness.allwomenstalk.com/things-to-remember-if-you-have-to-get-ready-at-the-gym/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [10 Fab Yoga Poses ...](https://allwomenstalk.com/10-fab-yoga-poses/)
 

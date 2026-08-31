@@ -14,16 +14,16 @@ You don't even have to leave the couch to get fit, so you can't make any more ex
 
 ## Related Posts
 
-- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
-- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
 - [excuses for not working out](https://fitness.allwomenstalk.com/which-of-these-excuses-for-not-working-out-do-you-use/)
-- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
-- [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
-- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
 - [afternoon exercise](https://fitness.allwomenstalk.com/why-morning-workouts-beat-afternoon-workouts/)
-- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
+- [dorm room workout](https://fitness.allwomenstalk.com/dorm-friendly-workouts-every-student-should-do/)
 - [post workout stretches full body](https://fitness.allwomenstalk.com/post-workout-stretches-thatll-benefit-your-body/)
+- [is it ok to take a break from working out](https://fitness.allwomenstalk.com/should-you-take-a-break-from-exercising/)
+- [taylor lashae height](https://fitness.allwomenstalk.com/which-workout-is-right-for-your-body/)
+- [fitness on netflix](https://fitness.allwomenstalk.com/workout-tips-for-when-youre-watching-netflix/)
 - [people in the gym](https://fitness.allwomenstalk.com/the-people-youll-see-at-the-gym/)
+- [how to show your abs more](https://fitness.allwomenstalk.com/how-to-get-your-abs-to-show/)
+- [how to increase sex appeal as a man](https://fitness.allwomenstalk.com/workouts-thatll-boost-your-sex-appeal/)
 - [10 Step Full Body Exercise Program ...](https://fitene.com/full-body-exercise-program/)
 - [10 Effective Exercises to Try ...](https://fitene.com/10-effective-exercises-to-try/)
 

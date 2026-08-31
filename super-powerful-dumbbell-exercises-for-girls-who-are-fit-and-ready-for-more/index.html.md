@@ -42,16 +42,16 @@ So tell me are you ready to put your fit body to the task and get in your best s
 
 ## Related Posts
 
-- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
+- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
 - [best exercise for balance](https://fitness.allwomenstalk.com/absolute-best-exercises-for-people-who-need-to-improve-balance/)
-- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
-- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
-- [work out pole](https://fitness.allwomenstalk.com/full-body-sculpting-pole-dancing-exercise-for-girls-who-feel-adventurous/)
-- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
-- [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
+- [fitness myths busted](https://fitness.allwomenstalk.com/biggest-fitness-myths-totally-busted/)
 - [pokemon fitness](https://fitness.allwomenstalk.com/pokemon-go-fitness-challenge-to-get-you-in-shape-in-days/)
 - [ballerina thighs](https://fitness.allwomenstalk.com/insanely-effective-ballet-moves-for-girls-who-are-struggling-to-get-thinner-thighs/)
-- [girls work out](https://fitness.allwomenstalk.com/workouts-to-motivateyou-for-the-girl-whos-tired-af-to-work-out/)
+- [work out pole](https://fitness.allwomenstalk.com/full-body-sculpting-pole-dancing-exercise-for-girls-who-feel-adventurous/)
+- [barre workout home](https://fitness.allwomenstalk.com/kickass-home-barre-workouts-for-girls-who-want-a-hot-toned-body/)
+- [fitness blender kickboxing](https://fitness.allwomenstalk.com/workouts-you-can-do-in-your-pjsfor-girlswho-cant-make-it-to-the-gym/)
+- [how to motivate a girl](https://fitness.allwomenstalk.com/ways-all-fit-girl-use-fitness-trackers-and-you-should-too/)
+- [fabulous 50 chest workout](https://fitness.allwomenstalk.com/get-a-boob-lift-without-surgery-with-these-chest-exercises/)
 - [7 Fun Exercises for the Perfect Body ...](https://allwomenstalk.com/7-fun-exercises-for-the-perfect-body/)
 - [7 Best Exercise for Curvy Girls ...](https://health.allwomenstalk.com/best-exercise-for-curvy-girls/)
 

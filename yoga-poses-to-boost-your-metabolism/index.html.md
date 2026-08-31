@@ -56,15 +56,15 @@ As you can see, yoga does so much more than just relax you after a long day. Alo
 
 ## Related Posts
 
-- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [family guy great way to stay in shape](https://fitness.allwomenstalk.com/ways-to-stay-in-shape-while-studying-abroad/)
 - [6 major muscle groups](https://fitness.allwomenstalk.com/major-muscle-groups-to-work-out-without-fail/)
 - [balancing yoga sequence](https://health.allwomenstalk.com/yoga-poses-for-balance-that-youve-got-to-try/)
 - [naya rivera workout](https://celebs.allwomenstalk.com/fittest-celebrities-thatll-motivate-you-to-hit-the-gym/)
-- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
 - [desert down dog yoga](https://fitness.allwomenstalk.com/easy-yoga-poses-to-get-you-started/)
+- [fun ways to get fit](https://fitness.allwomenstalk.com/unusual-ways-to-get-fit-in/)
 - [fitness tips for women](https://fitness.allwomenstalk.com/excellent-exercise-tips-for-women-in-their-20s/)
 - [overcoming exercise addiction](https://fitness.allwomenstalk.com/ways-to-overcome-an-exercise-addiction-that-work/)
+- [pilates or gym for toning](https://fitness.allwomenstalk.com/crucial-ways-pilates-tones-you-better-than-weights-do/)
 - [cool exercise gear](https://fitness.allwomenstalk.com/cool-fitness-gear-i-love-to-workout-in/)
 - [8 Incredibly Clever Ways to Jump Start Your Metabo...](https://weightloss.allwomenstalk.com/incredibly-clever-ways-to-jump-start-your-metabolism/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
