@@ -3,7 +3,7 @@ title: "7 Types of Partner Dancing to Try out ..."
 description: "Swing; Salsa; International Standard; International Latin; American Smooth; More ..."
 url: "https://fitness.allwomenstalk.com/types-of-partner-dancing-to-try-out/"
 category: "fitness"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Types of Partner Dancing to Try out ...
@@ -56,16 +56,16 @@ I love dancing, and have had so much fun learning all of these types of dances! 
 
 ## Related Posts
 
+- [fun website when bored](https://funny.allwomenstalk.com/fun-interactive-websites-for-when-youre-bored/)
 - [what to do at the weekend](https://lifestyle.allwomenstalk.com/useful-activities-for-a-weekend-at-home/)
-- [oceans promise](https://lifestyle.allwomenstalk.com/ways-to-celebrate-world-oceans-day-june-6th/)
-- [games to play at sleepivers](https://funny.allwomenstalk.com/fun-games-for-sleepovers-and-girls-nights/)
-- [cancel first date](https://love.allwomenstalk.com/ways-to-cancel-a-date-at-the-last-minute/)
 - [nerdy things to do in tokyo](https://travel.allwomenstalk.com/ways-to-get-your-geek-on-in-tokyo/)
+- [games to play at sleepivers](https://funny.allwomenstalk.com/fun-games-for-sleepovers-and-girls-nights/)
+- [craziest date ideas](https://love.allwomenstalk.com/unconventional-date-ideas-that-are-a-blast/)
 - [how to welcome someone from another country](https://travel.allwomenstalk.com/great-ways-to-make-new-friends-in-a-new-country/)
 - [grocery line](https://lifestyle.allwomenstalk.com/things-to-do-while-waiting-in-the-supermarket-checkout-line/)
-- [craziest date ideas](https://love.allwomenstalk.com/unconventional-date-ideas-that-are-a-blast/)
+- [oceans promise](https://lifestyle.allwomenstalk.com/ways-to-celebrate-world-oceans-day-june-6th/)
 - [which charity should i fundraise for](https://money.allwomenstalk.com/charity-fundraisers-you-should-try/)
-- [fun website when bored](https://funny.allwomenstalk.com/fun-interactive-websites-for-when-youre-bored/)
+- [cancel first date](https://love.allwomenstalk.com/ways-to-cancel-a-date-at-the-last-minute/)
 - [7 Martial Arts You Might Want to Try ...](https://fitene.com/7-martial-arts-you-might-want-to-try/)
 - [7 Tips on Playing Super Mario Wii with a Partner ....](https://allwomenstalk.com/7-tips-on-playing-super-mario-wii-with-a-partner/)
 
