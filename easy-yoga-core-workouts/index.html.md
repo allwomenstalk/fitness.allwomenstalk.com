@@ -3,7 +3,7 @@ title: "Easy Yoga Core Workouts No Equipment Necessary ..."
 description: "Planks; Downward Facing Dog; Boat Pose; More ..."
 url: "https://fitness.allwomenstalk.com/easy-yoga-core-workouts/"
 category: "fitness"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # Easy Yoga Core Workouts No Equipment Necessary ...
@@ -26,15 +26,15 @@ Get up off the couch, ditch the chips, and try these 3 core workouts. You’re w
 
 ## Related Posts
 
+- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
 - [working out feels like a chore](https://apps.allwomenstalk.com/fitness-apps-that-make-working-out-easier/)
+- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
 - [how to lose weight when you hate exercise](https://fitness.allwomenstalk.com/what-to-do-when-you-hate-exercise/)
 - [top fitness videos](https://fitness.allwomenstalk.com/best-youtube-channels-for-workout-videos/)
-- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
-- [gym girls](https://fitness.allwomenstalk.com/science-behind-fitness/)
 - [advice for beginners at the gym](https://fitness.allwomenstalk.com/practical-gym-tips-for-beginners/)
-- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
-- [working out girls](https://fitness.allwomenstalk.com/ways-to-make-morning-workouts-easier/)
+- [10 ways to stay healthy and fit](https://fitness.allwomenstalk.com/how-to-stay-fit-and-healthy-when-youre-super-busy/)
 - [skips shoes](https://fitness.allwomenstalk.com/times-its-ok-to-skip-your-workout/)
+- [how to lose 100 calories](https://fitness.allwomenstalk.com/fun-ways-to-burn-100-calories/)
 - [fitness myths debunked](https://fitness.allwomenstalk.com/most-common-fitness-myths-debunked/)
 - [7 Yoga Poses for Beginners ...](https://health.allwomenstalk.com/yoga-poses-for-beginners/)
 - [Yoga for the Time-Challenged, Busy Woman ...](https://allwomenstalk.com/yoga-for-the-time-challenged-busy-woman/)
